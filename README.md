@@ -1,8 +1,13 @@
-# Basel
+# Moving to Basel-Stadt, Switzerland
 
-Moving to Basel-Stadt, Switzerland
-
-        <DT><H3 ADD_DATE="1760985066" LAST_MODIFIED="1761033821">Basel</H3>
+<!DOCTYPE NETSCAPE-Bookmark-file-1>
+<!-- This is an automatically generated file.
+     It will be read and overwritten.
+     DO NOT EDIT! -->
+<META HTTP-EQUIV="Content-Type" CONTENT="text/html; charset=UTF-8">
+<TITLE>Bookmarks</TITLE>
+<DL><p>
+    <DT>
         <DL><p>
             <DT><H3 ADD_DATE="1760986144" LAST_MODIFIED="1760986404">Basel - Welcome to</H3>
             <DL><p>
@@ -72,4 +77,3 @@ Moving to Basel-Stadt, Switzerland
                 <DT><A HREF="https://www.bs.ch/jsd/polizei" ADD_DATE="1761033840" ICON="data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAABAAAAAQCAYAAAAf8/9hAAABQklEQVR4nIzTPy8EQRjH8ef27jh/CgqikihEQvYiKgWtnkarofASVF6BREGh1hAvAJVOlBIaGkQjElFtSM6f75N5TsZzu5ed5JPdmZ39zZ+dTeR/6cEqrvCBFxxiRgpKxd2vYwd1q+v1B9dYxoMPqEb3gzhAC3s4Q9PaR5HhwgL/SuLuh3FnUx7BSfRsCQ0/gzhAR9jHHBbwiM/o+QT6fEDF1XXNk9auy9tAas80bBuX8TKqLuAbrxK+xhZmUTMNqz/jqf1CTfJLy8Iy195ro1fs2jGDdsms07wNklhdv8yxhXedgaaPY9ENcuM7JgUB+tK0dM5QN7heJkDXmua06/kYKBMwhKmC9rRMgHbqx5uEDdM9ebf+zbhj0VdYwRc2JZxM3ew1CYdJ/4tTC84N0M5j2JXwX6hbHOFcwibeSzgr8gsAAP//lMga4QAAAAZJREFUAwDYczh6pHoIyAAAAABJRU5ErkJggg==">Cantonal Police of Basel-Stadt</A>
             </DL><p>
         </DL><p>
-
