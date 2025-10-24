@@ -5,6 +5,9 @@
 O Cantão de Basileia-Cidade possui uma administração moderna que mantém uma interação descomplicada com seus moradores.  
 O ponto central para este contato é o **Centro de Atendimento ao Cliente do Escritório de Registro de Moradores**, que oferece uma ampla gama de serviços.
 
+> The Canton of Basel-Stadt has a modern administration that maintains straightforward interaction with its residents.  
+> The main point of contact is the **Residents' Registration Office Customer Center**, which offers a wide range of services.
+
 ---
 
 ### Energia e Água Potável / Energy and Drinking Water
@@ -12,12 +15,18 @@ O ponto central para este contato é o **Centro de Atendimento ao Cliente do Esc
 O cantão de **Basel-Stadt** é abastecido com energia e água potável pela **[IWB – Industrielle Werke Basel](https://www.iwb.ch/)**.  
 Para garantir que seu consumo seja faturado corretamente, **notifique a IWB sobre qualquer mudança com pelo menos uma semana de antecedência**.
 
+> Basel-Stadt is supplied with energy and drinking water by **IWB (Industrielle Werke Basel)**.  
+> To ensure correct billing, **inform IWB of any changes at least one week in advance**.
+
 ---
 
 ### Moradia Alugada / Rental Housing
 
 Se você mora em uma casa ou apartamento alugado, **seu locador é a pessoa de contato para a maioria dos assuntos**.  
 Na Suíça, as cozinhas são **equipamentos padrão**, e os inquilinos geralmente têm acesso a **uma lavanderia compartilhada**.
+
+> If you live in a rented house or apartment, **your landlord is your main contact for most matters**.  
+> In Switzerland, kitchens are **standard equipment**, and tenants usually have access to a **shared laundry room**.
 
 ---
 
@@ -28,7 +37,13 @@ Você tem **inúmeras opções de compras em Basileia**:
 - A maioria das lojas fica aberta até **18h30 durante a semana**, algumas até **20h**.  
 - Aos **sábados**, a maioria fecha entre **17h e 18h**.  
 - Aos **domingos e feriados**, é possível fazer compras em **estações de trem**, **postos de gasolina** e **mercearias selecionadas**.
-- Se quiser fazer compras perto da fronteira, **observe as normas alfandegárias**, pois a Suíça **não faz parte da União Europeia**.
+
+Se quiser fazer compras perto da fronteira, **observe as normas alfandegárias**, pois a Suíça **não faz parte da União Europeia**.
+
+> Basel offers **numerous shopping options**.  
+> Most stores are open until **6:30 p.m. on weekdays** (some until 8 p.m.) and close around **5–6 p.m. on Saturdays**.  
+> On **Sundays and holidays**, shopping is possible at **train stations**, **petrol stations**, and **selected grocery stores**.  
+> If shopping near the border, **follow customs rules**, as Switzerland is **not part of the EU**.
 
 ---
 
@@ -36,6 +51,10 @@ Você tem **inúmeras opções de compras em Basileia**:
 
 A gastronomia em **Basel e arredores** tem excelente reputação.  
 É **diversificada** e oferece opções para todos os gostos — de **pubs locais** a **restaurantes gourmet** com chefs renomados.
+
+> Basel’s gastronomy has an excellent reputation.  
+> It is **diverse**, ranging from **cozy local pubs** to **gourmet restaurants** with award-winning chefs.  
+> You can enjoy both **regional specialties** and **international cuisine**.
 
 ---
 
@@ -54,6 +73,10 @@ Também **gerencia objetos perdidos** e **emite apostilas e certidões**.
 
 📍 [Basel-Stadt Residents' Registration Office](https://www.bdm.bs.ch/)
 
+> The **Residents' Registration Office** is the first point of contact for new arrivals in Basel.  
+> It records all residents — Swiss and foreign — and handles changes of civil status, address, or name, as well as births and deaths.  
+> The **Passport Office** issues **passports and ID cards** for Swiss citizens and manages **lost property and certificates**.
+
 ---
 
 ### Permissões / Permits
@@ -63,6 +86,11 @@ Também **gerencia objetos perdidos** e **emite apostilas e certidões**.
 - O **Cartório de Registro de Residentes**  
 - O **Escritório de Inspeção de Veículos Motorizados**  
 - O **Departamento de Construção e Transportes**
+
+> You can obtain **personalized advice about permits** from:  
+> - The **Residents’ Registration Office**  
+> - The **Motor Vehicle Inspection Office**  
+> - The **Department of Construction and Transport**
 
 ---
 
@@ -76,6 +104,9 @@ Regras importantes:
 - Todos devem ser **alojados e cuidados conforme a Lei de Bem-Estar Animal**.  
 - Cães precisam ser **registrados no veterinário** e na plataforma **[AMICUS](https://www.amicus.ch/)**, possuir **microchip** e estar **regularizados para fins fiscais**.
 
+> In Basel-Stadt, **pet ownership usually does not require a permit**, except for potentially dangerous dogs.  
+> Dogs must be **registered with a veterinarian and in the AMICUS database**, have a **microchip**, and be **tax-registered**.
+
 ---
 
 ### Descarte de Resíduos / Waste Disposal
@@ -87,6 +118,10 @@ Use apenas os **sacos de lixo oficiais do cantão**, chamados **“sacos Bebbi�
 
 📄 [Informações oficiais sobre resíduos – Basel-Stadt](https://www.bau-und-verkehr.bs.ch/abfall.html)
 
+> Household waste is collected **twice a week**.  
+> The **collection schedule** is distributed once a year and can be obtained from the **Residents’ Registration Office** or local police stations.  
+> Only use **official canton garbage bags**, called **“Bebbi-Säcke”**, available at most supermarkets.
+
 ---
 
 ### Rádio e TV / Radio and TV
@@ -94,6 +129,9 @@ Use apenas os **sacos de lixo oficiais do cantão**, chamados **“sacos Bebbi�
 Na Suíça, **rádio e TV estão sujeitos a taxas obrigatórias**, independentemente do dispositivo (TV, rádio, computador, tablet ou celular).  
 A empresa **[Serafe](https://www.serafe.ch/)** é responsável pela cobrança.  
 As taxas são **pagas por domicílio, não por aparelho**.
+
+> In Switzerland, **radio and television are subject to mandatory fees**, regardless of the device.  
+> The company **Serafe** collects these fees, which are **charged per household**, not per device.
 
 ---
 
@@ -104,6 +142,11 @@ Em Basileia, o futuro já é uma grande prioridade.
 Desde 2013, **Basel** é reconhecida pela **[UNICEF](https://www.unicef.ch/)** como uma **“Cidade Amiga da Criança”**.  
 A constituição do cantão também **garante o direito à creche**.
 
+> In Basel, the future is already a major priority.  
+> **Child- and family-friendly policies** are standard across the canton.  
+> Since 2013, **Basel** has been recognized by **UNICEF** as a **“Child-Friendly City.”**  
+> The cantonal constitution also **guarantees the right to childcare**.
+
 ---
 
 ### Creche / Childcare
@@ -112,6 +155,9 @@ Os pais podem escolher entre **diversas opções de cuidado infantil complementa
 Esses serviços estão disponíveis em praticamente todos os bairros.
 
 📍 Informações oficiais: [Kinderbetreuung Basel-Stadt](https://www.kinderbetreuung.bs.ch/)
+
+> Parents can choose among **various childcare options**, such as **daycare centers** and **day families** (childminders).  
+> These services are available throughout all residential areas.
 
 ---
 
@@ -129,6 +175,12 @@ Há **áreas de lazer locais**, **parques**, **playgrounds**, **instalações es
 - [Jugend Basel – Serviços para Jovens](https://www.jugend.bs.ch/)
 - [Bibliotheken Basel – Bibliotecas](https://www.bibliotheken.bs.ch/)
 - [Museen Basel – Museus](https://www.museenbasel.ch/)
+
+> Families, young people, and children in **Basel** have many opportunities for recreation.  
+> The city offers **local leisure areas**, **parks**, **playgrounds**, **sports facilities**, **museums**, **libraries**, and **youth theatres**.  
+> - In **summer**, outdoor **swimming pools** are popular meeting places.  
+> - In **winter**, people enjoy **ice skating** at one of the city’s two **artificial ice rinks**.  
+> - There are also **community centers** and **youth clubs** across the city.
 
 ---
 
@@ -148,12 +200,22 @@ Principais serviços:
 [Soziale Dienste Basel-Stadt](https://www.sozialhilfe.bs.ch/)  
 [Elternberatung Basel-Stadt](https://www.elternberatung.bs.ch/)
 
+> In cases of **family issues, questions, or emergencies**, a **wide network of public and private institutions** provides **free or subsidized support**.  
+> Families, parents, young people, and children can receive professional guidance in several areas.  
+
+> Main services include:  
+> - **Child and Youth Services**  
+> - **Early Intervention Center**  
+> - **Parent Counselling**  
+> - **Family and Couple Counselling**  
+> - **Youth Counselling**
+
 ---
 
 ### Recursos e Contatos / Useful Resources
 
 - **Cidade de Basileia – Crianças, Jovens e Famílias:**  
-  [basel-stadt.ch
+  [basel-stadt.ch > Kinder, Jugend, Familie](https://www.bs.ch/leben/kinder-jugend-familie.html)
 - **Departamento de Educação Basel-Stadt:**  
   [ed.bs.ch](https://www.ed.bs.ch/)
 - **UNICEF Suíça e Liechtenstein:**  
@@ -161,12 +223,21 @@ Principais serviços:
 - **Portal Oficial da Cidade de Basileia:**  
   [www.bs.ch](https://www.bs.ch/)
 
+> **Basel City – Children, Youth and Family:**  
+> [basel-stadt.ch > Children, Youth, Family](https://www.bs.ch/leben/kinder-jugend-familie.html)  
+> **Department of Education:** [ed.bs.ch](https://www.ed.bs.ch/)  
+> **UNICEF Switzerland:** [unicef.ch](https://www.unicef.ch/)  
+> **Official Basel Portal:** [www.bs.ch](https://www.bs.ch/)
+
 ---
 
 ## 3. Educação / Education
 
 O Cantão de **Basel-Stadt** possui um sistema escolar **moderno e eficiente**, adaptado às necessidades das crianças e jovens que vivem aqui.  
 Na Suíça, a **educação é uma responsabilidade cantonal**, o que significa que cada cantão organiza suas próprias escolas e programas.
+
+> The Canton of **Basel-Stadt** has a **modern and efficient school system**, tailored to the needs of children and young people living here.  
+> In Switzerland, **education is primarily a cantonal responsibility**, meaning each canton manages its own schools and programs.
 
 ---
 
@@ -192,6 +263,19 @@ Durante as férias, há **creches, atividades diárias e acampamentos esportivos
 
 📍 [Educação obrigatória – Basel-Stadt](https://www.ed-bs.ch/)
 
+> **Compulsory schooling** lasts **11 years**, starting at **age 5**, and includes:  
+> - **2 years of kindergarten**  
+> - **6 years of primary school**  
+> - **3 years of lower secondary school**
+
+> Students learn **French from grade 3** and **English from grade 5**.  
+> After primary school, they are placed in one of three levels based on performance:  
+> - **A:** General requirements  
+> - **E:** Extended requirements  
+> - **P:** Advanced requirements  
+
+> Schools offer **after-school care**, **lunch programs**, and **holiday camps** for students.
+
 ---
 
 ### Aprendizagem Precoce da Língua Alemã / Early German Language Learning
@@ -200,6 +284,9 @@ Crianças que falam pouco ou nenhum alemão devem participar de **grupos de recr
 Essa medida, **obrigatória desde 2013**, tem como objetivo **integrar as crianças por meio da linguagem e das brincadeiras**.
 
 📍 [Deutschförderung – Basel-Stadt](https://www.ed-bs.ch/deutschfoerderung)
+
+> Children who speak little or no German must attend **German-language playgroups or daycare** for at least **three half-days per week** before starting kindergarten.  
+> This **has been mandatory in Basel-Stadt since 2013**, helping children learn the language through play.
 
 ---
 
@@ -215,6 +302,12 @@ Após a escola obrigatória, os jovens têm várias opções:
 📍 [Formação Profissional – Basel-Stadt](https://www.berufsbildung.bs.ch/)  
 📍 [Gymnasium Basel-Stadt](https://www.gymnasium-basel.ch/)
 
+> After compulsory schooling, students have several paths:  
+> - **Vocational training (apprenticeship):** Lasts 2–4 years, combining **practical and classroom learning**.  
+> - **Professional baccalaureate:** Enables access to **universities of applied sciences (FHNW)**.  
+> - **Fachmaturität:** Qualification for technical studies.  
+> - **Gymnasium (academic baccalaureate):** A 4-year program leading to university studies.
+
 ---
 
 ### Universidade de Basileia / University of Basel
@@ -222,6 +315,10 @@ Após a escola obrigatória, os jovens têm várias opções:
 A **[Universidade de Basileia](https://www.unibas.ch/)** é a **mais antiga da Suíça**, fundada em **1460**.  
 É uma instituição de ensino superior moderna, com **7 faculdades** e cerca de **13.000 estudantes**, dos quais **20% são internacionais**.  
 A taxa semestral é de **CHF 850**.
+
+> The **[University of Basel](https://www.unibas.ch/)** is **Switzerland’s oldest university**, founded in **1460**.  
+> It is a modern institution with **7 faculties**, about **13,000 students**, and **20% international enrollment**.  
+> Tuition fees are **CHF 850 per semester**.
 
 ---
 
@@ -239,7 +336,10 @@ Com quase **14.000 estudantes** (incluindo **1.000 internacionais**), oferece cu
 - Serviço Social e Música  
 
 Taxas: **CHF 700 por semestre (suíços)** / **CHF 1.000 (UE/EFTA)**.
-social work, and more.  
+
+> The **[FHNW](https://www.fhnw.ch/)** is one of Switzerland’s leading universities of applied sciences.  
+> With nearly **14,000 students** (including **1,000 international**), it offers programs in computing, engineering, business, arts, social work, and more.  
+> Tuition: **CHF 700 (Swiss)** / **CHF 1,000 (EU/EFTA)** per semester.
 
 ---
 
@@ -250,6 +350,8 @@ Algumas delas oferecem **Matura** reconhecida nacionalmente.
 
 📍 [Private Schulen Basel – Lista oficial](https://www.basel.com/de/privatschulen)
 
+> Basel has several **private and international schools** offering education in **English, French, or Italian**.  
+> Some grant a **nationally recognized Matura diploma**.
 
 ---
 
@@ -264,6 +366,12 @@ A cidade oferece uma ampla variedade de **opções de formação contínua e cur
 
 Adultos também podem cursar o **Matura para trabalhadores**, que dá acesso à Universidade de Basileia, ou obter **qualificações profissionais** em escolas técnicas.
 
+> Basel offers a wide range of **continuing education opportunities**:  
+> - **Advanced Studies at the University of Basel**  
+> - **FHNW Continuing Education**  
+> - **Volkshochschule (Adult Education Center)**  
+> - **SeniorenUni** for people aged 58+  
+> Adults can also complete a **working adult Matura** or obtain **professional qualifications**.
 
 ---
 
@@ -345,6 +453,51 @@ Entre os destaques estão o **festival Floss**, realizado no Reno durante o ver�
 
 ---
 
+### 🇬🇧 Culture
+
+Basel offers far more culture than most cities of its size.
+This is due to its history, location, and the cosmopolitan spirit of its residents.
+
+### Museums
+
+Basel’s museums have earned worldwide fame.
+The **[Kunstmuseum Basel](https://kunstmuseumbasel.ch/)** displays treasures by old masters such as Hans Holbein and modern classics.
+The Contemporary Art building hosts an extensive modern collection.
+
+Other major attractions include the **[Fondation Beyeler](https://www.fondationbeyeler.ch/)** in Riehen, the **[Antikenmuseum](https://www.antikenmuseumbasel.ch/)**, the **[Tinguely Museum](https://www.tinguely.ch/)**, and the **[Museum of Cultures](https://www.mkb.ch/)**.
+A special feature is the **[Three Countries Museum Pass](https://www.museumspass.com/)**, which grants unlimited access to about **345 museums, castles, and gardens** across Switzerland, France, and Germany, with free entry for up to five children under 18.
+
+### Theatre
+
+The **[Theater Basel](https://www.theater-basel.ch/)** is among the best German-speaking theatres, offering opera, drama, and ballet.
+The **[Kaserne Basel](https://www.kaserne-basel.ch/)** is a key venue for independent theatre, dance, and performance.
+Nearby in France, **Théâtre La Coupole Saint-Louis** also hosts English-friendly performances.
+
+### Music
+
+The **[Stadtcasino Basel](https://www.stadtcasino.ch/)** is the city’s premier venue for classical concerts, featuring the Basel Symphony Orchestra, Sinfonietta Basel, and the Basel Chamber Orchestra.
+The **[Bird’s Eye Jazz Club](https://www.birdseye.ch/)** is a hub for jazz lovers, and numerous festivals celebrate rock, hip-hop, and electronic music.
+
+### Cinema
+
+Cinemas in Basel usually screen films in their original language with subtitles.
+Children’s films are often dubbed, and options range from multiplexes to cozy local theatres.
+
+### Architecture
+
+Basel blends historic quarters with modern landmarks:
+
+* **Münsterhügel** (Cathedral Hill) and **St. Alban-Vorstadt** feature medieval architecture.
+* Modern icons include **Messeturm**, **St. Jakob-Park**, and **Roche Towers** by **Herzog & de Meuron**.
+* The **[Novartis Campus](https://www.novartis.com/our-science/novartis-campus)** showcases world-class design.
+  Basel is also home to the **[Swiss Architecture Museum](https://www.sam-basel.org/)**.
+
+### Festivals
+
+Highlights include the **Floss Summer Festival**, held on the Rhine, and the **[Baloise Session](https://www.baloisesession.ch/)**, featuring global stars such as Rod Stewart, Seal, and Alicia Keys.
+
+---
+
 ### 🗣️ Vocabulário / Vocabulary
 
 | Português   | English      | Deutsch     |
@@ -361,6 +514,10 @@ Entre os destaques estão o **festival Floss**, realizado no Reno durante o ver�
 | Rock        | Rock         | Rock        |
 | Hip-hop     | Hip-hop      | Hip-Hop     |
 | Artesanato  | Handicraft   | Handwerk    |
+
+---
+
+> 🔗 **Links oficiais:** [kultur.bs.ch](https://www.kultur.bs.ch), [theater-basel.ch](https://www.theater-basel.ch), [baloisesession.ch](https://www.baloisesession.ch)
 
 
 ---
@@ -504,6 +661,59 @@ A **Basler Personenschifffahrt (BPG)** oferece passeios regulares e especiais du
 Para algo mais tradicional, experimente uma das **quatro balsas do Reno**: *Wilde Maa*, *Leu*, *Vogel Gryff* e *Ueli*.
 Elas **usam apenas a correnteza do rio**, cruzando silenciosamente de uma margem à outra sem motor — uma experiência única.
 
+Há até uma expressão local divertida:
+
+> “Verzell doch das em Fäärimaa!”
+> (“Conte isso ao barqueiro!”) — usada quando alguém conta uma história difícil de acreditar.
+
+---
+
+### 🇬🇧 Green Spaces in Basel
+
+Although **Basel-City** is a mainly **urban canton**, it offers plenty of **green spaces** within and around the city — from small **“pocket parks”** to wide recreational areas.
+
+### 🌿 Allotment Gardens
+
+If you don’t have your own garden, you can **rent a family garden** (“Familiengarten”).
+These plots, managed by the canton, provide a small piece of nature for city residents to grow plants and relax outdoors.
+
+### 🌳 Recreational Areas
+
+The **Birsköpfli**, where the **Birs River** flows into the **Rhine**, is one of Basel’s favorite leisure spots for walking, swimming, or simply relaxing.
+You can also stroll along the **Wiese River**, another peaceful green area with picnic and barbecue spots.
+
+Many forests around Basel are equipped with **public fire pits** (“Grillstellen”) for barbecues.
+
+The **University of Basel’s Botanical Garden** features over 7,000 plant species, including the historic **Victoria House (built in 1898)** and a **succulent house**, right beside the **Spalentor Gate**.
+
+The **Merian Gardens** in **Brüglingen** include an **English-style landscape park**, a **medicinal plant garden**, and the **Rhododendron Valley** — a peaceful retreat from city life.
+
+Basel’s **regional green belt** is home to **thousands of animal and plant species**, including rare and endangered ones.
+
+---
+
+### 🐘 Zoo and Animal Park
+
+The **Basel Zoo**, affectionately called **“dr Zolli”**, is the **oldest zoo in Switzerland**, founded in 1874.
+It combines **modern, animal-friendly facilities** with **beautiful historical buildings**, creating a lush green oasis near the main train station.
+
+The **Lange Erlen Animal Park** is smaller and focuses on **local Swiss species**. Entry is free, and it’s a great place for families.
+
+---
+
+### ⛴️ Boats and Ferries on the Rhine
+
+**Rhine cruises** are a popular way to discover Basel from the water.
+The **Basel Passenger Shipping Company (BPG)** operates regular and special cruises all year round.
+
+For a more traditional experience, try one of the **four Rhine ferries**: *Wilde Maa*, *Leu*, *Vogel Gryff*, and *Ueli*.
+They cross the river **using only the natural current**, without any motor — silent and ecological.
+
+There’s even a local saying:
+
+> “Verzell doch das em Fäärimaa!”
+> (“Tell that to the ferryman!”) — meaning “I don’t believe that story!”.
+
 ---
 
 ### 🗣️ Vocabulário / Vocabulary
@@ -523,6 +733,10 @@ Elas **usam apenas a correnteza do rio**, cruzando silenciosamente de uma margem
 
 ---
 
+Perfeito ✅
+Aqui está o **Capítulo 7 — Esportes / Sports**, formatado no mesmo estilo bilíngue, com links oficiais, vocabulário e sugestão de imagens oficiais ao final:
+
+---
 
 ## 7. Esportes / Sports
 
@@ -572,6 +786,47 @@ O esporte está presente **em todas as formas e facetas**, com infraestrutura pa
 
 ---
 
+### 🇬🇧 Sports in Basel
+
+Basel offers **almost unlimited opportunities** for both individual and team sports.
+
+### 🏃 Mass Sports
+
+Over **200 sports clubs** operate in the city, offering everything from water sports and ball games to martial arts and running.
+The annual **slowUp event** promotes **car-free outdoor activities**, inviting families and individuals to exercise together.
+
+Those who prefer **solo activities** can enjoy Basel and its surroundings by:
+
+* Cycling 🚴‍♂️
+* Ice skating ⛸️
+* Inline skating
+* Playing golf ⛳
+* Horse riding 🐎
+* Paragliding 🪂
+
+Indoor activities such as water aerobics, yoga, and gymnastics are also widely available.
+**Public sports facilities** are popular meeting points for families and communities.
+
+### 👦 Youth Development
+
+**Youth sports development** is a top priority.
+Many clubs maintain **junior divisions**, supported by the canton, municipalities, and federal government.
+
+### ⚽ Basel as a Sports City
+
+Basel is recognized as a **sports city**, especially for clubs like **FC Basel (FCB)**.
+The **St. Jakob-Park Stadium (“Joggeli”)** hosts an average of **25,000 spectators** for home games.
+
+High-level sports events also take place annually, including:
+
+* **Swiss Indoors** tennis tournament
+* **Swiss Open** badminton tournament
+* **Longines CHI** equestrian competition
+
+Sports are an **integral part of urban life**, with facilities for recreational and competitive activities and a wide range of complementary exercise options.
+
+---
+
 ### 🗣️ Vocabulário / Vocabulary
 
 | Português         | English           | Deutsch                   |
@@ -585,6 +840,23 @@ O esporte está presente **em todas as formas e facetas**, com infraestrutura pa
 | Futebol           | Football / Soccer | Fussball                  |
 | Tênis             | Tennis            | Tennis                    |
 | Badminton         | Badminton         | Badminton                 |
+
+---
+
+### 📸 Imagens oficiais sugeridas
+
+* **St. Jakob-Park durante um jogo do FCB**
+  *St. Jakob-Park Stadium during an FCB match*
+  Fonte / Source: FC Basel (CC BY-SA)
+
+* **Evento slowUp em Basileia**
+  *slowUp event in Basel*
+  Fonte / Source: slowUp.ch (CC BY-SA)
+
+---
+
+Perfeito ✅
+Aqui está o **Capítulo 8 — Saúde / Health**, no mesmo formato bilíngue, com links oficiais, vocabulário e sugestões de imagens:
 
 ---
 
@@ -627,6 +899,38 @@ O sistema de saúde do cantão garante **assistência médica do mais alto padr�
 
 ---
 
+### 🇬🇧 Healthcare in Basel
+
+### 🏥 Health Insurance
+
+**Mandatory health insurance** covers treatment costs in case of illness.
+
+* Health insurers are **private**; there are no state-owned insurers in Switzerland.
+* The **basic insurance plan** is **mandatory for all residents**, including foreigners with residence permits.
+* **Supplementary insurance** can be purchased voluntarily, but the insurer can choose whom to accept.
+* With **basic insurance**, **no one can be refused**.
+
+### 🏨 Hospitals
+
+The **University Hospital of Basel** is one of Switzerland’s largest medical centers, internationally recognized.
+
+* Doctors, nurses, and staff ensure **patients’ well-being, safety, and recovery** based on **up-to-date scientific research**.
+* Other **public and private hospitals** also provide high-quality medical care.
+
+### 👶 Children
+
+The **University Children’s Hospital Basel (UKBB)** offers state-of-the-art care in a child-friendly environment.
+The **School Dental Clinic**, founded in 1921, provides dental treatment for all children in the canton regardless of family income.
+
+### 👴 Elderly
+
+Basel-Stadt provides a wide range of **support services for the elderly**.
+The **Long-Term Care Division** coordinates and manages all available services in the canton.
+
+The canton’s healthcare system ensures **high-quality medical care**, based on a **uniform insurance system throughout Switzerland**.
+
+---
+
 ### 🗣️ Vocabulário / Vocabulary
 
 | Português          | English          | Deutsch                           |
@@ -640,6 +944,22 @@ O sistema de saúde do cantão garante **assistência médica do mais alto padr�
 | Criança            | Child            | Kind                              |
 | Idoso              | Elderly          | Senior                            |
 | Assistência médica | Medical care     | medizinische Versorgung           |
+
+---
+
+### 📸 Imagens oficiais sugeridas
+
+* **Hospital Universitário de Basileia (USB)**
+  *University Hospital of Basel (USB)*
+  Fonte / Source: [usb.ch](https://www.usb.ch) (CC BY-SA)
+
+* **Hospital Universitário Infantil de Basileia (UKBB)**
+  *University Children’s Hospital Basel (UKBB)*
+  Fonte / Source: [ukbb.ch](https://www.ukbb.ch) (CC BY-SA)
+
+---
+
+Perfeito! Aqui está o **Capítulo 9 — Integração / Integration**, já no formato **bilíngue**, com **links oficiais**, **vocabulário bilíngue** e sugestões de imagens:
 
 ---
 
@@ -693,7 +1013,7 @@ O idioma é **fundamental para a integração**.
 
 ### 🛂 Autorizações de Trabalho
 
-* **UE/EFTA**: estadias curtas devem ser declaradas;
+* **UE/EFTA**: estadias curtas devem ser declaradas; >3 meses requerem **autorização de trabalho ou residência**.
 * **Não UE/EFTA**: regras especiais; empregador solicita autorização ao cantão e à **Secretaria de Estado da Migração em Berna**.
 
 ### 🏦 Segurança Social
@@ -712,6 +1032,68 @@ Baseada em **três pilares**:
 
 ---
 
+### 🇬🇧 Integration in Basel
+
+### 🏢 Counselling and Contact Centers
+
+Basel-Stadt offers a **network of counselling centers** for newcomers.
+
+* **GGG Migration** is the competence center for integration.
+* The team provides advice in **over 17 languages** on work, residence, German courses, family, finance, health, social security, and taxes.
+* The **Residents’ Registration Office** handles residence, housing, permits, and identity documents.
+
+### 🎉 Offers and Events
+
+The canton promotes a **welcoming culture**:
+
+* **"Welcome to Basel"**: newcomers meet the Cantonal Council and local organizations.
+* **"Welcome to the Neighborhood"**: information about local life and networking.
+* Web platform **"Hallo Basel-Stadt"**: information in **20 languages**.
+
+### 📚 Language and Integration Courses
+
+Language is **key to integration**.
+
+* Eligible newcomers receive **voucher for a free German course** (80 lessons, valid 1 year).
+* All residents get **reduced prices** for integration and language courses.
+
+### 🌍 Diversity and Inclusion
+
+* Basel-Stadt has **160 nationalities**; many binational marriages.
+* Policies for **active integration and anti-discrimination** cover all areas of life.
+
+---
+
+### 🇬🇧 Business and Work
+
+### 💼 Working Conditions
+
+* Probation: **2–3 months**; notice: **a few days to 2 weeks**.
+* After permanent employment: notice: **1–6 months**.
+* Working hours: **40–42.5 hrs/week**; vacation: **minimum 4 weeks/year**.
+* Salary paid monthly; **13th salary and bonuses** are common.
+
+### 🛂 Work Permits
+
+* **EU/EFTA**: short stays must be declared; >3 months require **work/residence permit**.
+* **Non-EU/EFTA**: special rules; employer requests permit from the canton and **State Secretariat for Migration in Bern**.
+
+### 🏦 Social Security
+
+* All employees in Switzerland are part of the **social security system**.
+* Covers **unemployment, family, accident, illness, maternity**.
+* Every resident is **individually insured**; contributions give access to benefits.
+
+### 🏛️ Retirement Provision
+
+Based on **three pillars**:
+
+1. **AHV/IV** – national old-age, survivors, and disability insurance.
+2. **BV** – occupational pension plan.
+3. **Pillar 3** – individual voluntary pension savings.
+
+---
+
 ### 🗣️ Vocabulário / Vocabulary
 
 | Português                | English            | Deutsch                |
@@ -726,6 +1108,22 @@ Baseada em **três pilares**:
 | Rede de imigração        | Migration network  | Migrationsnetzwerk     |
 | Previdência social       | Social security    | Sozialversicherung     |
 | Três pilares             | Three pillars      | Drei-Säulen-System     |
+
+---
+
+### 📸 Imagens oficiais sugeridas
+
+* **GGG Migration Basel-Stadt**
+  *Competence center for integration*
+  Fonte / Source: [ggg-basel.ch](https://www.ggg-basel.ch/migration)
+
+* **Residents’ Registration Office (Einwohnerkontrolle)**
+  *Handles residence and permits*
+  Fonte / Source: [basel.ch](https://www.basel.ch/de/Einwohnerkontrolle)
+
+---
+
+Claro! Vamos expandir o **Capítulo 10 — Economia e Empregos / Economy and Jobs**, mantendo o formato bilíngue e incorporando dados atualizados sobre os setores econômicos, principais empresas e estatísticas de emprego em Basileia:
 
 ---
 
@@ -752,6 +1150,22 @@ A região de Basileia é reconhecida por sua economia dinâmica e diversificada.
 
 ---
 
+### 🇬🇧 Economic Sectors
+
+The Basel region is recognized for its dynamic and diverse economy. Key sectors include:
+
+* **Life Sciences**: With over 800 companies, including giants like Roche, Novartis, and Johnson & Johnson, the region is a global hub for biopharma innovation. ([invest.baselarea.swiss][1])
+
+* **Financial Services**: Basel is an important financial center, with a strong presence in banking and insurance sectors.
+
+* **Logistics and Trade**: The city boasts advanced logistics infrastructure, facilitating international trade.
+
+* **Information and Communication Technology (ICT)**: The digital sector is growing, with investments in startups and technological innovation.
+
+* **Creative and Cultural Industries**: Basel is known for its vibrant cultural scene, with museums, galleries, and international events.
+
+---
+
 ### 🇧🇷 Estatísticas de Emprego / Employment Statistics
 
 * **Emprego no Setor de Ciências da Vida**: Mais de 33.000 profissionais altamente qualificados atuam nesse setor na região de Basileia. ([invest.baselarea.swiss][1])
@@ -762,6 +1176,15 @@ A região de Basileia é reconhecida por sua economia dinâmica e diversificada.
 
 ---
 
+### 🇬🇧 Employment Statistics
+
+* **Employment in Life Sciences Sector**: Over 33,000 highly skilled professionals work in this sector in the Basel region. ([invest.baselarea.swiss][1])
+
+* **Unemployment Rate**: The local unemployment rate is around 4.0%, indicating a stable labor market. ([InterNations][2])
+
+* **Job Vacancies**: In 2024, Basel-Stadt led the Swiss market with approximately 739 vacancies for science professionals, accounting for 24% of all vacancies in the country. ([Vacancysoft][3])
+
+---
 
 ### 🇧🇷 Principais Empresas / Major Companies
 
@@ -776,6 +1199,18 @@ A região de Basileia é reconhecida por sua economia dinâmica e diversificada.
 * **Lonza**: Fornecedor líder de soluções para a indústria farmacêutica e biotecnológica.
 
 ---
+
+### 🇬🇧 Major Companies
+
+* **Roche**: One of the world's largest pharmaceutical companies, headquartered in Basel.
+
+* **Novartis**: Global leader in pharmaceuticals and healthcare products.
+
+* **Johnson & Johnson**: American multinational with a strong presence in the region.
+
+* **Syngenta**: Company specializing in crop protection products and seeds.
+
+* **Lonza**: Leading supplier of solutions for the pharmaceutical and biotechnology industries.
 
 | Português          | English             | Deutsch                   |
 | ------------------ | ------------------- | ------------------------- |
@@ -845,6 +1280,10 @@ Desde 1471, Basileia tem **direito de realizar feiras comerciais**, mantendo uma
 | Produto artesanal | Handicraft       | Handwerk        |
 | Iguaria           | Delicacy         | Delikatesse     |
 | Especialidade     | Specialty        | Spezialität     |
+
+---
+
+Perfeito! Aqui está o **Capítulo 12 – Mobilidade / Mobility** formatado no mesmo padrão bilíngue com vocabulário:
 
 ---
 
@@ -1020,6 +1459,10 @@ Em resumo, Basileia é um lugar **dinâmico, seguro e agradável** para viver, e
 | Seguro                      | Safe                       |
 | Agradável                   | Pleasant                   |
 | Oportunidades profissionais | Professional opportunities |
+
+---
+
+Perfeito! Aqui está o **Capítulo 15 – Perguntas Frequentes / FAQs** no mesmo formato bilíngue com vocabulário:
 
 ---
 
