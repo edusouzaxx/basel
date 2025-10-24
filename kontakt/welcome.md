@@ -107,276 +107,87 @@ grounds.
 
 
 ## 7. Sport
-Popular sport
- The possibilities for popular sport are virtually unlimited. More than
-200 sports clubs are active in Basel, the list of sports on offer is long
-and includes numerous water, ball, combat and track sports. And
-every year there is also the car-free movement and experience day
-“slowUp” in the Basel region.
- Those who prefer to keep fit on an individual basis can enjoy the city
-and its surroundings by cycling, skating, inline skating, playing golf,
-riding or paragliding. There’s also a wide choice indoors, from aquajogging to yoga. The public sports facilities in Basel are popular
-public and family meeting points.
-Youth development
-Youth encouragement and development takes pride of place in
-sport. Many clubs run their own junior sections. The canton, the municipalities and the Confederation support the sporting activities of
-young people.
-Basel as a sports city
-Basel’s reputation as a sporting city is based on clubs such as the
-Basel Football Club (FCB). The home games draw crowds averaging over 25,000 in the St. Jakob-Park (“Joggeli”). Basel also hosts
-on an annual basis top-class sporting events such as the international tennis tournament Swiss Indoors, the Badminton Swiss Open
-or the Longines CHI.
-Sport
-Sport has its place in all forms and facets of city life. Enthusiasts
-can choose from a very wide range of individual and team sports,
-as there are excellent facilities for both popular and competitive
-sporting activities. A multitude of fitness offerings complete the
-traditional sports opportunities in Basel.
-20 21
-Health
-Health insurance
-Compulsory health insurance covers the costs of treatment in the
-event of illness, whereby the health insurance funds are organised
-within the private sector and there is no state health insurance fund
-in Switzerland. Basic insurance is compulsory for all inhabitants –
-including for foreigners with residence permits – and various additional insurances can be taken out on a voluntary basis. However, in
-the case of these additional services the health insurance funds are
-free to decide whom they accept or do not accept in the insurance
-plans. In the basic insurances, on the other hand, the funds may not
-reject any application.
-Hospitals
-The University Hospital of Basel is one of the largest medical centres
-in Switzerland with highly recognised international standards. The
-doctors and nurses work on the basis of the latest scientific knowledge for the well-being, safety and recovery of the patients. Other
-independent public and private hospitals also offer high-quality
-medical care in all disciplines.
-Children
-In the field of healthcare children also have an important place in
-Basel. The University Children’s Hospital of both Basels (UKBB) is
-an autonomous university skills centre offering high-quality medicine in an environment designed for children. The School Dental
-Clinic is a public institution that was founded in 1921 for the benefit
-of the dental health of Basel children and young people. Already at
-that time the idea was to open a dental clinic where all children of
-the Canton of Basel-Stadt could be treated – irrespective of their
-family’s financial situation.
-Old age
-Basel-Stadt has an extensive range of support services for the elderly. The Long-term Care Division of the Department of Health, as
-the canton’s central information and specialist unit, is familiar with
-and coordinates all the services on offer.
-Health
-The canton of Basel-Stadt guarantees the highest quality of medical
-care for all its inhabitants due to a differentiated health system. The
-basis for this is an insurance system that functions in a uniform manner throughout Switzerland.
-22 23
-Integration
-Advice and contact points
-Immigrants in Basel have at their disposal a comprehensive network
-of advice and contact points. GGG Migration is the competence
-centre for integration in Basel-Stadt. Its employees advise private individuals in over 17 languages on topics such as employment, residence, German courses, family, finances, health, social insurance,
-or taxes. They mediate interactions with employers, authorities, and
-institutions and offer guidance on matters related to integration and
-migration. The Residential Registration Office is the contact point for
-questions regarding residency and housing (registrations, notices
-of departure, relocations, changes of tenancy, address information,
-etc.) and permits and ID cards (passports, residence permits and
-cross-border commuter permits, family residence permits, attestations, certificates).
-Offerings
-Among the many offerings is, for example, the event “Welcome to
-Basel”. The executive council welcomes all new residents personally. Various authorities and associations provide information on topics such as employment, residence, education, health, or finances.
-Additionally, new residents have the opportunity to get to know
-each other and network among themselves. At the “Welcome to the
-neighbourhood” event held every year, the district organisations inform the residents from the various districts about life and offerings
-in their neighbourhood. The web platform “Hallo Basel-Stadt” also
-provides initial information on the most important areas of life in 20
-languages.
-Languages and integration courses
-An essential factor for integration is language. A broad range of language and integration courses is available in the canton so that all
-those interested can find a suitable language course. During the
-welcome meeting at the Residential Registration Office, new residents entitled to a residence permit B receive a voucher for a free
-German course of 80 lessons. The voucher is valid for one year. All
-residents of the canton of Basel-Stadt are also entitled to a reduced
-course fee even after one year.
-Integration
-The residential and economic location of Basel-Stadt is characterised by its internationality and immigration. People from 160 countries live and work here, and practically every other marriage is between two nationalities. Everyone should feel comfortable and be
-able to shape their lives independently and autonomously in this urban diversity. To this end Basel-Stadt pursues an active integration
-and anti-discrimination policy that covers all aspects of life.
-24 25
-Economy and employment
-Employment conditions
-The first two or three months of employment are usually considered
-as a trial with a notice period varying from a few days to a maximum
-of two weeks. After attaining permanent employment status the notice period is increased to between one and six months. Working
-hours are between 40 and 42.5 hours per week with at least 4 weeks
-paid vacation per year. Salaries are generally paid on a monthly basis. A 13th month salary is common and often established by law. In
-many companies it is usual to award a discretionary bonus when
-business is good.
-Work permits
-People from the EU and EFTA countries benefit from the free movement of people agreements: short-term working visits only have to
-be reported. A work or residence permit is required for visits lasting
-more than three months; these can be applied for at the Customer
-service centre for Migration and Population Services.
-Special rules for admission to the labour market apply to individuals
-from countries that are not members of the EU or EFTA. The employer has to submit their application for a work permit to the cantonal
-authorities. The approval of the State Secretariat for Migration in
-Bern is also required.
-Social security
-Whoever works in Switzerland is subject to the Swiss system of social security. This applies both to Swiss and foreigners. Even those
-who are not working are subject to the same system of social security in many areas. Basically every person is insured individually
-in Switzerland. For this, contributions must be made that entitle the
-person to corresponding benefits. Switzerland has a close-knit network of social insurances which includes unemployment insurance,
-family allowances, protection against the consequences of illness
-and accident, and loss of income due to maternity.
-Old age/ retirement provisions
-Retirement provisions are based on three pillars: the first pillar, oldage, survivors’ and disability insurance (AHV/IV) is a general public insurance, serving to secure subsistence. The second pillar refers in Switzerland to occupational pensions (BV). Together with the
-first pillar, it is intended to safeguard the continuation of one’s habitual standard of living. Finally the third pillar consists of individual
-voluntary pension provisions.
-Economy and
-employment
-The Basel economic region is among the most productive and innovative in the world. Within Switzerland Basel is the region with the
-greatest economic momentum.
-About 200,000 people from Switzerland and the surrounding areas
-work here. Behind this success lie the knowledge-based industries.
-These include in particular the life sciences sector with large pharmaceutical companies and biomedical research that have traditionally been very strong in Basel.
-26 27
-Fairs and markets
-Autumn fair
-The high point of Basel’s fair calendar is the Autumn Fair. “D’Mäss”,
-as the Baslers call this event, begins two weeks before Martinstag
-(Martin’s day) and is heralded on the opening Saturday at noon precisely by the fair bells of St Martin’s Church. It ends on the third following Sunday. Breathtaking rides, traditional stalls and nostalgic
-attractions excite visitors at seven locations.
-City and weekly markets
-The city market on the Marktplatz (market square) is a highly colourful event where an abundance of delicacies and specialities are on
-offer. These include vegetables and fruits, flowers, meat products,
-mushrooms, honey, wine, coffee, dry goods, breads and handmade
-products, tea and much more. The city market takes place from
-Tuesday through Wednesday until 2pm and Friday and Saturday until 6pm. The “Schlemmer-Markt” is a gourmet market held at Marktplatz every Monday and offers a wide variety of delicious foods and
-beverages. Numerous other markets are held in the districts, creating a friendly atmosphere with quality, freshness and customer
-proximity. Market stalls selling fresh produce and delicious menus
-lure shoppers in under the great dome of the old market hall at the
-railway station. The market hall is open every day, but what is on offer
-varies depending on the time of day and which day of the week it is.
-The new goods market on Barfüsserplatz in the city centre offers
-every Thursday all kinds of ware: jewellery, arts and crafts from
-around the world, decorations, gourmet food and clothes are just a
-few examples. There’s also plenty of choice of food and drink.
-Flea markets
-The flea market on Petersplatz is a popular meeting place on Saturdays for everyone who likes second-hand goods. From fine antiques to overalls, here one can find everything one needs for daily
-life – at very attractive prices. In the middle of the square children
-can sell their toys free of charge. And twice a month during the
-week there’s the Wednesday flea market on Barfüsserplatz with a
-wide variety of rare objects and treasures. And a number of flea
-markets set up by individuals for individuals take place throughout
-the year in different districts of Basel.
-Christmas market
-In December Basel turns into a Christmas city: the great Christmas
-market is set up on Barfüsserplatz and Münsterplatz. From mulled
-wine to ice trees, arts and crafts to Christmas tree decorations, children’s toys to seasonal delicacies, there’s something for everyone.
-In addition there’s a children’s programme with handicraft workshops and candle-making.
-Fairs and markets
-In the year 1471 the city of Basel was granted the right to hold fairs.
-The city thus has a centuries-old tradition, and today Basel is a popular fair and congress venue with its top-class cultural and hotel
-offerings.
-28 29
-Mobility
-On foot
-There are about 100 strolling zones – where pedestrians have right
-of way over all road vehicles – and far-reaching 30 km/h zones,
-which make walking in Basel a pleasant and safe experience. Pedestrian zones in the city centre also make an important contribution
-to an attractive network of walking paths.
-By bicycle
-Basel is a cycle-friendly town with a bicycle network that runs
-through the whole region (red signs). Thanks to the bike rental systems Velospot and Pick-e-Bike, bicycles and e-bikes can be easily
-rented. Cargo bikes and e-scooters can be rented from other providers.
-Public Transport
-Basel has an extensive, cross-border public transport network that
-boasts numerous connections and reliable punctuality. The train
-stations of Basel SBB and the Badischer Bahnhof connect Basel
-with the national and international long-distance and regional lines.
-The inexpensive “Umweltabonnement”, a monthly environmentallyfriendly travel card, covers all means of public transport as bus,
-tram or train in the area of the Tarifverbund Nordwestschweiz TNW.
-The travel card is available from all TNW transport companies.
-Tickets (“Billette”) must be purchased before the start of your journey or validated. They can be obtained on the Internet, smartphone
-app or from the ticket machines at almost every bus, train or tram
-stop. With the Halbtax-Abo (half-fare card) you can purchase public
-transport tickets in Switzerland at reduced prices. The general season ticket (GA) allows unlimited travel on almost the entire public
-transport network in Switzerland. Timetables are available on the
-respective transport company’s website or via a smartphone app.
-By car
-You must buy a parking ticket if you want to park on public property
-in the town. Local residents can obtain a parking card, which allows
-them to park on blue marked parking areas in their neighbourhood
-without any time restrictions. Visitors arriving by car can obtain halfday or day parking tickets from public transport ticket machines or
-on the Internet. Before travelling on a motorway, you must purchase
-a toll sticker, which is valid for one calendar year. Thanks to the
-large, nationwide car-sharing company Mobility, it is possible to do
-without owning a car.
-Mobility
-The Canton of Basel-Stadt has an excellent infrastructure for all
-modes of transport. Basel places a great deal of importance on
-road users being able to travel in harmony. In Basel, it is easy to
-travel in an environmentally friendly way thanks to dense and
-well-developed networks of walking and cycling paths, as well as
-a comprehensive and comfortable public transport system.
-30 31
-Politics
-Switzerland has a federal structure and so the cantons have a
-relatively great freedom of action. Each canton has its own constitution, own laws and courts, and it is the cantons that raise
-direct taxes. In addition there is the principle: what is not expressly
-stated in the Federal constitution as a Federal competence falls
-under the competence of the cantons. However, the autonomy of
-the cantons has limits. Where a Federal law exists it takes precedence over cantonal law.
-As in every democratic system the political system of the Canton of Basel-Stadt is characterised by the interplay and opposing forces of parliament and government. A central element is also
-the participation of the population and of parties and associations
-in the political and legislative process.
-City and communes
-With its 37 square kilometres and about 200,000 inhabitants the
-canton of Basel-Stadt is the smallest canton in Switzerland. It consists of the city of Basel and the rural communes of Riehen and Bettingen, which possess autonomy as communes and are thus entitled to manage their own affairs.
-Cantonal Parliament
-As a Swiss rarity the Great Council, the Basel Cantonal Parliament,
-is also responsible for the communal affairs of the city of Basel. The
-Great Council consists of 100 members and is re-elected every four
-years. It sits twice a month in the Basel Town Hall in public sessions.
-Executive Council
-The executive council consists of seven members with equal rights,
-who are elected for four-year terms. The President of the Executive
-Council has representative duties and presides over the Department of Presidential Affairs, the other six government members
-each head up one of the specialised departments. On the cantonal
-level a department can be compared to a “Dezernat”; the departments on Federal level correspond to ministries.
-States councillors and national councillors
-On the Federal level Switzerland has a Parliament, consisting of two
-chambers: the Council of States represents the cantons, the National Council the whole population. In the States Council each canton
-has two representatives, in the National Council each canton is represented in function of its population. As a half-canton Basel-Stadt
-has one States Councillor. In the National Council Basel-Stadt is represented by four delegates.
-People’s rights
-Swiss citizens over 18 years of age have the right to vote: they can
-elect representatives to Parliament on the communal, cantonal and
-national level and can also stand for election themselves. The governments of the Canton and the communes of Riehen and Bettingen are also elected by the population. The right to vote also gives
-the Swiss the possibility of expressing themselves on whether or not
-they agree with new laws. Furthermore they can themselves propose changes to the law through the right to initiate legislation and
-bring it to a vote. Through the right to a referendum a popular vote
-can be required on parliamentary decisions after they have been
-taken. By means of a petition, people can file a request, suggestion
-or complaint in writing to any regulatory or enforcing authority, irrespective of their voting right status – i.e. this includes foreigners and
-children.
-Politics
-32 33
-Politics
-Executive council
-Dr. Conradin Cramer
-President of the Executive Council
-Head of Department of Presidential Affairs
-Dr. Lukas Engelberger
-Vice-President of the Executive Council
-Head of Department of Public Health
-Mustafa Atici
-Head of Department of Education
-Dr. Stephanie Eymann
-Head of Department of Justice and Security
-Kaspar Sutter
-Head of Department of Economic, Social and
-Environmental Affairs
-Esther Keller
-Head of Department of Public Works and
-Transport
-Dr. Tanja Soland
-Head of Department of Finance
+
+Sport has its place in all forms and facets of city life. Enthusiastscan choose from a very wide range of individual and team sports,as there are excellent facilities for both popular and competitivesporting activities. A multitude of fitness offerings complete thetraditional sports opportunities in Basel.
+
+- **Popular sport -** The possibilities for popular sport are virtually unlimited. More than 200sports clubs are active in Basel, the list of sports on offer is long and includes numerous water, ball, combat and track sports. Andevery year there is also the car-free movement and experience day “slowUp” in the Basel region.  Those who prefer to keep fit on an individual basis can enjoy the city and its surroundings by cycling, skating, inline skating, playing golf, riding or paragliding. There’s also a wide choice indoors, from aquajogging to yoga. The public sports facilities in Basel are popular public and family meeting points.
+
+- **Youth development -** Youth encouragement and development takes pride of place in sport. Many clubs run their own junior sections. The canton, the municipalities and the Confederation support the sporting activities of young people.
+
+- **Basel as a sports city -** Basel’s reputation as a sporting city is based on clubs such as the Basel Football Club (FCB). The home games draw crowds averaging over 25,000 in the St. Jakob-Park (“Joggeli”). Basel also hosts on an annual basis top-class sporting events such as the international tennis tournament Swiss Indoors, the Badminton Swiss Open or the Longines CHI.
+
+
+## 8. Health
+
+The canton of Basel-Stadt guarantees the highest quality of medicalcare for all its inhabitants due to a differentiated health system. Thebasis for this is an insurance system that functions in a uniform manner throughout Switzerland.
+
+- **Health insurance -** Compulsory health insurance covers the costs of treatment in the event of illness, whereby the health insurance funds are organised within the private sector and there is no state health insurance fund in Switzerland. Basic insurance is compulsory for all inhabitants – including for foreigners with residence permits – and various additional insurances can be taken out on a voluntary basis. However, in the case of these additional services the health insurance funds are free to decide whom they accept or do not accept in the insurance plans. In the basic insurances, on the other hand, the funds may not reject any application.
+
+- **Hospitals -** The University Hospital of Basel is one of the largest medical centres in Switzerland with highly recognised international standards. The doctors and nurses work on the basis of the latest scientific knowledge for the well-being, safety and recovery of the patients. Other independent public and private hospitals also offer high-quality medical care in all disciplines.
+
+- **Children -** In the field of healthcare children also have an important place in Basel. The University Children’s Hospital of both Basels (UKBB) is an autonomous university skills centre offering high-quality medicine in an environment designed for children. The School Dental Clinic is a public institution that was founded in 1921 for the benefit of the dental health of Basel children and young people. Already at that time the idea was to open a dental clinic where all children of the Canton of Basel-Stadt could be treated – irrespective of their family’s financial situation.
+
+- **Old age -** Basel-Stadt has an extensive range of support services for the elderly. The Long-term Care Division of the Department of Health, as the canton’s central information and specialist unit, is familiar with and coordinates all the services on offer.
+
+## 9. Integration
+
+The residential and economic location of Basel-Stadt is characterised by its internationality and immigration. People from 160 countries live and work here, and practically every other marriage is between two nationalities. Everyone should feel comfortable and be able to shape their lives independently and autonomously in this urban diversity. To this end Basel-Stadt pursues an active integration and anti-discrimination policy that covers all aspects of life.
+
+- **Advice and contact points -** Immigrants in Basel have at their disposal a comprehensive network of advice and contact points. GGG Migration is the competence centre for integration in Basel-Stadt. Its employees advise private individuals in over 17 languages on topics such as employment, residence, German courses, family, finances, health, social insurance, or taxes. They mediate interactions with employers, authorities, and institutions and offer guidance on matters related to integration and migration. The Residential Registration Office is the contact point for questions regarding residency and housing (registrations, notices of departure, relocations, changes of tenancy, address information, etc.) and permits and ID cards (passports, residence permits and cross-border commuter permits, family residence permits, attestations, certificates).
+
+- **Offerings -** Among the many offerings is, for example, the event “Welcome to Basel”. The executive council welcomes all new residents personally. Various authorities and associations provide information on topics such as employment, residence, education, health, or finances. Additionally, new residents have the opportunity to get to know each other and network among themselves. At the “Welcome to the neighbourhood” event held every year, the district organisations inform the residents from the various districts about life and offerings in their neighbourhood. The web platform “Hallo Basel-Stadt” also provides initial information on the most important areas of life in 20 languages.
+
+- **Languages and integration courses -** An essential factor for integration is language. A broad range of language and integration courses is available in the canton so that all those interested can find a suitable language course. During the welcome meeting at the Residential Registration Office, new residents entitled to a residence permit B receive a voucher for a free German course of 80 lessons. The voucher is valid for one year. All residents of the canton of Basel-Stadt are also entitled to a reduced course fee even after one year.
+
+
+## 10. Economy and employment
+
+The Basel economic region is among the most productive and innovative in the world. Within Switzerland Basel is the region with thegreatest economic momentum.About 200,000 people from Switzerland and the surrounding areaswork here. Behind this success lie the knowledge-based industries.These include in particular the life sciences sector with large pharmaceutical companies and biomedical research that have traditionally been very strong in Basel.
+
+- **Employment conditions -** The first two or three months of employment are usually considered as a trial with a notice period varying from a few days to a maximum of two weeks. After attaining permanent employment status the notice period is increased to between one and six months. Working hours are between 40 and 42.5 hours per week with at least 4 weeks paid vacation per year. Salaries are generally paid on a monthly basis. A 13th month salary is common and often established by law. In many companies it is usual to award a discretionary bonus when business is good.
+
+- **Work permits -** People from the EU and EFTA countries benefit from the free movement of people agreements: short-term working visits only have to be reported. A work or residence permit is required for visits lasting more than three months; these can be applied for at the Customer service centre for Migration and Population Services. Special rules for admission to the labour market apply to individuals from countries that are not members of the EU or EFTA. The employer has to submit their application for a work permit to the cantonal authorities. The approval of the State Secretariat for Migration in Bern is also required.
+
+- **Social security -** Whoever works in Switzerland is subject to the Swiss system of social security. This applies both to Swiss and foreigners. Even those who are not working are subject to the same system of social security in many areas. Basically every person is insured individually in Switzerland. For this, contributions must be made that entitle the person to corresponding benefits. Switzerland has a close-knit network of social insurances which includes unemployment insurance, family allowances, protection against the consequences of illness and accident, and loss of income due to maternity.
+
+- **Old age/ retirement provisions -** Retirement provisions are based on three pillars: the first pillar, oldage, survivors’ and disability insurance (AHV/IV) is a general public insurance, serving to secure subsistence. The second pillar refers in Switzerland to occupational pensions (BV). Together with the first pillar, it is intended to safeguard the continuation of one’s habitual standard of living. Finally the third pillar consists of individual voluntary pension provisions.
+
+
+## 11. Fairs and markets
+
+In the year 1471 the city of Basel was granted the right to hold fairs.The city thus has a centuries-old tradition, and today Basel is a popular fair and congress venue with its top-class cultural and hotelofferings.
+
+- **Autumn fair -** The high point of Basel’s fair calendar is the Autumn Fair. “D’Mäss”, as the Baslers call this event, begins two weeks before Martinstag (Martin’s day) and is heralded on the opening Saturday at noon precisely by the fair bells of St Martin’s Church. It ends on the third following Sunday. Breathtaking rides, traditional stalls and nostalgic attractions excite visitors at seven locations. 
+  
+- **City and weekly markets -** The city market on the Marktplatz (market square) is a highly colourful event where an abundance of delicacies and specialities are on offer. These include vegetables and fruits, flowers, meat products, mushrooms, honey, wine, coffee, dry goods, breads and handmade products, tea and much more. The city market takes place from Tuesday through Wednesday until 2pm and Friday and Saturday until 6pm. The “Schlemmer-Markt” is a gourmet market held at Marktplatz every Monday and offers a wide variety of delicious foods and beverages. Numerous other markets are held in the districts, creating a friendly atmosphere with quality, freshness and customer proximity. Market stalls selling fresh produce and delicious menus lure shoppers in under the great dome of the old market hall at the railway station. The market hall is open every day, but what is on offer varies depending on the time of day and which day of the week it is. The new goods market on Barfüsserplatz in the city centre offers every Thursday all kinds of ware: jewellery, arts and crafts from around the world, decorations, gourmet food and clothes are just a few examples. There’s also plenty of choice of food and drink.
+
+- **Flea markets -** The flea market on Petersplatz is a popular meeting place on Saturdays for everyone who likes second-hand goods. From fine antiques to overalls, here one can find everything one needs for daily life – at very attractive prices. In the middle of the square children can sell their toys free of charge. And twice a month during the week there’s the Wednesday flea market on Barfüsserplatz with a wide variety of rare objects and treasures. And a number of flea markets set up by individuals for individuals take place throughout the year in different districts of Basel.
+
+- **Christmas market -** In December Basel turns into a Christmas city: the great Christmas market is set up on Barfüsserplatz and Münsterplatz. From mulled wine to ice trees, arts and crafts to Christmas tree decorations, children’s toys to seasonal delicacies, there’s something for everyone. In addition there’s a children’s programme with handicraft workshops and candle-making.
+
+## 12. Mobility
+
+The Canton of Basel-Stadt has an excellent infrastructure for allmodes of transport. Basel places a great deal of importance onroad users being able to travel in harmony. In Basel, it is easy totravel in an environmentally friendly way thanks to dense andwell-developed networks of walking and cycling paths, as well asa comprehensive and comfortable public transport system.
+
+- **On foot -** There are about 100 strolling zones – where pedestrians have right of way over all road vehicles – and far-reaching 30 km/h zones, which make walking in Basel a pleasant and safe experience. Pedestrian zones in the city centre also make an important contribution to an attractive network of walking paths.
+
+- **By bicycle -** Basel is a cycle-friendly town with a bicycle network that runs through the whole region (red signs). Thanks to the bike rental systems Velospot and Pick-e-Bike, bicycles and e-bikes can be easily rented. Cargo bikes and e-scooters can be rented from other providers.
+
+- **Public Transport -** Basel has an extensive, cross-border public transport network that boasts numerous connections and reliable punctuality. The train stations of Basel SBB and the Badischer Bahnhof connect Basel with the national and international long-distance and regional lines. The inexpensive “Umweltabonnement”, a monthly environmentallyfriendly travel card, covers all means of public transport as bus, tram or train in the area of the Tarifverbund Nordwestschweiz TNW. The travel card is available from all TNW transport companies. Tickets (“Billette”) must be purchased before the start of your journey or validated. They can be obtained on the Internet, smartphone app or from the ticket machines at almost every bus, train or tram stop. With the Halbtax-Abo (half-fare card) you can purchase public transport tickets in Switzerland at reduced prices. The general season ticket (GA) allows unlimited travel on almost the entire public transport network in Switzerland. Timetables are available on the respective transport company’s website or via a smartphone app.
+
+- **By car -** You must buy a parking ticket if you want to park on public property in the town. Local residents can obtain a parking card, which allows them to park on blue marked parking areas in their neighbourhood without any time restrictions. Visitors arriving by car can obtain halfday or day parking tickets from public transport ticket machines or on the Internet. Before travelling on a motorway, you must purchase a toll sticker, which is valid for one calendar year. Thanks to the large, nationwide car-sharing company Mobility, it is possible to do without owning a car.
+
+
+## 13. Politics
+
+Switzerland has a federal structure and so the cantons have a relatively great freedom of action. Each canton has its own constitution, own laws and courts, and it is the cantons that raise direct taxes. In addition there is the principle: what is not expressly stated in the Federal constitution as a Federal competence falls under the competence of the cantons. However, the autonomy of the cantons has limits. Where a Federal law exists it takes precedence over cantonal law. As in every democratic system the political system of the Canton of Basel-Stadt is characterised by the interplay and opposing forces of parliament and government. A central element is also the participation of the population and of parties and associations in the political and legislative process.
+
+- **City and communes -** With its 37 square kilometres and about 200,000 inhabitants the canton of Basel-Stadt is the smallest canton in Switzerland. It consists of the city of Basel and the rural communes of Riehen and Bettingen, which possess autonomy as communes and are thus entitled to manage their own affairs. 
+
+- **Cantonal Parliament -** As a Swiss rarity the Great Council, the Basel Cantonal Parliament, is also responsible for the communal affairs of the city of Basel. The Great Council consists of 100 members and is re-elected every four years. It sits twice a month in the Basel Town Hall in public sessions.
+
+- **Executive Council -** The executive council consists of seven members with equal rights, who are elected for four-year terms. The President of the Executive Council has representative duties and presides over the Department of Presidential Affairs, the other six government members each head up one of the specialised departments. On the cantonal level a department can be compared to a “Dezernat”; the departments on Federal level correspond to ministries.
+
+- **States councillors and national councillors -** On the Federal level Switzerland has a Parliament, consisting of two chambers: the Council of States represents the cantons, the National Council the whole population. In the States Council each canton has two representatives, in the National Council each canton is represented in function of its population. As a half-canton Basel-Stadt has one States Councillor. In the National Council Basel-Stadt is represented by four delegates.
+
+- **People’s rights -** Swiss citizens over 18 years of age have the right to vote: they can elect representatives to Parliament on the communal, cantonal and national level and can also stand for election themselves. The governments of the Canton and the communes of Riehen and Bettingen are also elected by the population. The right to vote also gives the Swiss the possibility of expressing themselves on whether or not they agree with new laws. Furthermore they can themselves propose changes to the law through the right to initiate legislation and bring it to a vote. Through the right to a referendum a popular vote can be required on parliamentary decisions after they have been taken. By means of a petition, people can file a request, suggestion or complaint in writing to any regulatory or enforcing authority, irrespective of their voting right status – i.e. this includes foreigners and children.
