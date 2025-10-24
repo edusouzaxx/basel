@@ -63,181 +63,50 @@ The canton of Basel-Stadt has a modern, high-quality school system that meets th
 
 - **Further education -** Basel also offers a wide choice in the area of further education: The FHNW offers a diversified range of further education possibilities in all its subject areas. Under the “Advanced Studies” the University of Basel for example organises academic further education courses to be completed while working. Federal qualifications in the field of higher vocational training can be obtained from public vocational colleges as well as private schools. The adult education centre of both Basel cantons offers numerous events in general further education, language courses and post-literacy courses for adults. And for all people who have reached the age of 58, the “SeniorenUni” organises events in various fields of knowledge of the University of Basel. Adults who had no opportunity in their youth to attend a sec ondary school can obtain a canton school-leaving certificate in the matriculation courses for working people (Maturitätskurse für Erwachsene [MfB]), which enables access to the University of Basel. In addition, adult education facilities offer vocational qualification courses for adults. 
 
-## Culture
-Where culture is concerned, Basel has more to offer than cities of
-comparable size. This has to do with the city’s history, its location
-and the cosmopolitanism of the city and its inhabitants.
-12 13
-Culture Culture
-cultural festival “Floss”, which is performed on a raft in the Rhine in
-the summer, represents a special feature. When world-famous stars
-such as Rod Stewart, Seal or Alicia Keys come to Basel, they are
-probably attending the BALOISE SESSION. Every autumn, top in
--
-ternational stars perform at the popular Swiss boutique music fes
--
-tival, leaving the audience with memorable experiences. Further
--
-more, at the Musical Theatre Basel, one of the most modern stages
-in Europe, major musical events regularly take place.
-Cinema
-In Basel film fans also get their money’s worth. The fact that films in
-the cinema are shown in the original but with subtitles is considered
-a special feature of Switzerland. Films for children and young peo
--
-ple can, however, also be seen in a dubbed version. The choice
-ranges from the great multiplex cinema to the small city cinema.
-Architecture
-The cityscape of Basel with its numerous contrasts and sights also
-belongs to the culture of the city. On the one hand, Basel has very
-well preserved old city parts with buildings from the 13th and 14th
-centuries. Above all the cathedral hill, the suburb of St. Alban and
-the streets between the market square and Petersplatz deserve a
-mention. Besides that Basel offers first-class modern architecture
-in a density offered by hardly any other European city. Among Ba
--
-sel’s architectural highlights are the 105-metre-high Messe tower
-by architects Morger Degelo Marques and the St. Jakob-Park foot
--
-ball stadium by Herzog & de Meuron. The new Novartis Campus
-next to the French border was realised with the participation of re
--
-nowned architects. The 205 meter high Roche office tower in Klein
--
-basel is the tallest office building in Switzerland. The first Roche
-Tower, already completed in 2015, is 178 metres high. It is hardly
-astonishing, therefore, that the Swiss Museum of Architecture is
-also located in Basel.
-Museums
-The reputation of the Basel museums has made the city known
-worldwide. The Basel Art Museum exhibits treasures by old mas
--
-ters, among them Hans Holbein, as well as modern classics. The
-integrated Haus für Gegenwartskunst houses an extensive con
--
-temporary art collection. But this is not the only museum known far
-beyond the borders of the country. Other magnets for the public are
-the Foundation Beyeler in Riehen with its spectacular rotating exhi
--
-bitions, the Museum of Antiquities, the Tinguely Museum and the
-Museum of Cultures. One of Basel’s specialities is that the five public
-museums cooperate closely with the numerous private museums,
-and have issued a common Upper Rhine Museum Pass for the mu
--
-seums of the three-countries area. With this pass you have unlim
--
-ited entry to the permanent and special exhibitions of around 345
-museums, castles and gardens in Germany, France (Alsace) and
-north-western Switzerland, and can take up to five children under
-the age of 18 free of charge.
-Theatre
-In addition to the numerous museums, the Basel Theatre is a pillar
-of the cultural city of Basel. It is run as a three-section operation with
-three stages at two sites, and offers numerous operas, plays and
-ballet productions annually. The Basel Theatre has been honoured
-several times as one of the best stages in the German-speaking
-area. Numerous small and tiny stages complete the theatre and
-dance offerings in Basel.
-Among the many small theatres of the region there are several that
-specialise in theatre productions for children and youth. English
--
-speaking performances take place regularly in Basel, and in the
-French Saint-Louis, the Théâtre La Coupole Saint-Louis is situated
-directly in front of the city gates.
-A central municipal location for the free contemporary theatre,
-dance and performance scene as well as for concerts in the area of
-popular musicis the Basel Kaserne (the old barracks). With its broad
-range the Kaserne promotes exchanges between the artists, the
-public and other art centres.
-Music
-The musical offering in Basel is extensive. For classical concerts the
-city casino on Barfüsserplatz in the middle of the inner city is the
-most important venue. This features not only outstanding local en
--
-sembles like the Basel Symphony Orchestra, the Basel Sinfonietta
-and the Basel Chamber Orchestra, but also world-famous interna
--
-tional orchestras and soloists hold guest performances. In addition
-numerous classical concerts such as those performed by the ba
--
-roque orchestra and vocal ensemble La Cetra are being staged in
-churches throughout the city.
-There are several jazz clubs in Basel, such as “the bird’s eye jazz
-club” and there is also a series of festivals featuring all styles, from
-Dixie to Swing and avantgarde jazz. In the areas of Rock, Hip-Hop,
-Techno and other contemporary musical trends, several pubs in Ba
--
-sel and in the local area provide a varied and lively programme. The
-14 15
-Carnival
-“Morgestraich”
-The prelude to the “drey scheenschte Dääg” (“the three best days”)
-comes in the form of the so-called “Morgestraich” at 4 in the morning on the Monday. Then all the city centre lights go out and Queen
-Fasnacht picks up the torch in the city till Thursday. A traditional and
-archaic-seeming tapestry of sound from innumerable piccolos and
-drums pervades the town. With their wild and brightly coloured costumes the merry Fasnacht crowd roams through the narrow lanes of
-the old town until dusk begins to fall. The only sources of light are
-powerful hand-painted lanterns.
-“Cortège”
-On the Monday afternoon (and on Wednesday too) there is the great
-procession, the “Cortège”, when hundreds of cliques, “Guggemusiken” and decorated floats pass through the streets of outer and inner Basel. In Basel “Guggemusiken” mean wind and percussion
-groups, which can be described as a mix between Big Bands and
-strange noise machines.
-Fasnacht Tuesday
-Tuesday traditionally belongs to the children, who make their way
-through the town and suburbs in small groups (“Schissdrägzygli”).
-In the evening on Münsterplatz the over two hundred lanterns that
-had made their grand entrance at the Morgestraich can be admired
-in peace. At the same time the Guggemusiken take over the inner
-city acoustically with their concerts.
-“Schnitzelbängg”
-There is intense activity in the pubs over these three days. In socalled “Schnitzelbängg” – humorous, and sometimes sarcastic
-mocking verses – in which the political and social events of the past
-months are scoffed at and commented on.
-Origin
-Etymologically the Basel Fasnacht can be traced back to the Lent
-fasting period, and the date is determined by the Christian feast
-days: The Basel Fasnacht always takes place six weeks before
-Easter, thus a week later than in the Catholic German-speaking area,
-and the afternoons of the Monday and Wednesday are declared official public holidays in Basel.
-Carnival
-For three days once a year there’s a very special atmosphere in Basel: it’s the three days of the Basel Fasnacht (Carnival), always in the
-week following Ash Wednesday.
-16 17
-Green areas
-Leisure gardens
-Those who don’t have a garden can rent a leisure garden. The canton rents out leisure gardens around the city.
-Recreation zones
-One can also find recreation at the “Birsköpfli” on the edge of the
-city, where the little river Birs flows into the Rhine. Or a walk along
-the Wiese, another tributary of the Rhine. In the surrounding woods
-there are numerous open hearths for evening barbecues. In the vicinity of the Spalentor in the city centre the University of Basel has a
-botanical garden with a Sukkulentenhaus (succulents greenhouse)
-and the Viktoriahaus dating from 1898. In the “Merian Gärten” in
-front of the city gates, visitors can enjoy an English landscape park,
-a medicinal plant garden and the rhododendron valley. The RegioGrüngürtel (regional green belt) around Basel is the main green
-artery for leisure and recreation. It is also the habitat of several thousand animal and plant types, including some very rare and threatened species.
-Zoo and animal park
-Basel’s zoological garden – “dr Zolli”, as it is called here – is Switzerland’s oldest animal park. It was founded in 1874, and today the
-“Zolli” displays a blend of modern, animal-friendly facilities with
-magnificent old buildings in a green oasis in the immediate proximity of the train station. In the recreation area of the same name is the
-Lange Erlen animal park. This is smaller than the zoo and features
-primarily domestic animals.
-Ship and ferry
-Boat trips on the Rhine are also very popular. The Basel passenger
-boat company offers regular and special passenger trips throughout the year both near and beyond the city.
-And if you just wish to cross the Rhine to the other bank, then you
-should try one of the four ferries in Basel. These noiseless craft use
-the currents of the Rhine to reach the other bank without additional
-power. And besides, when one doesn’t quite believe something,
-then one says in Basel: “Verzell doch das em Fäärimaa!” – Just tell
-that to the ferryman!
-Green areas
+## 4. Culture
+
+Where culture is concerned, Basel has more to offer than cities of comparable size. This has to do with the city’s history, its location and the cosmopolitanism of the city and its inhabitants.
+
+- **Museums -** The reputation of the Basel museums has made the city known worldwide. The Basel Art Museum exhibits treasures by old mas ters, among them Hans Holbein, as well as modern classics. The integrated Haus für Gegenwartskunst houses an extensive con temporary art collection. But this is not the only museum known far beyond the borders of the country. Other magnets for the public are the Foundation Beyeler in Riehen with its spectacular rotating exhi bitions, the Museum of Antiquities, the Tinguely Museum and the Museum of Cultures. One of Basel’s specialities is that the five public museums cooperate closely with the numerous private museums, and have issued a common Upper Rhine Museum Pass for the mu seums of the three-countries area. With this pass you have unlim ited entry to the permanent and special exhibitions of around 345 museums, castles and gardens in Germany, France (Alsace) and north-western Switzerland, and can take up to five children under the age of 18 free of charge.
+
+- **Theatre -** In addition to the numerous museums, the Basel Theatre is a pillar of the cultural city of Basel. It is run as a three-section operation with three stages at two sites, and offers numerous operas, plays and ballet productions annually. The Basel Theatre has been honoured several times as one of the best stages in the German-speaking area. Numerous small and tiny stages complete the theatre and dance offerings in Basel. Among the many small theatres of the region there are several that specialise in theatre productions for children and youth. English speaking performances take place regularly in Basel, and in the French Saint-Louis, the Théâtre La Coupole Saint-Louis is situated directly in front of the city gates. A central municipal location for the free contemporary theatre, dance and performance scene as well as for concerts in the area of popular musicis the Basel Kaserne (the old barracks). With its broad range the Kaserne promotes exchanges between the artists, the public and other art centres.
+
+- **Music -** The musical offering in Basel is extensive. For classical concerts the city casino on Barfüsserplatz in the middle of the inner city is the most important venue. This features not only outstanding local en sembles like the Basel Symphony Orchestra, the Basel Sinfonietta and the Basel Chamber Orchestra, but also world-famous interna tional orchestras and soloists hold guest performances. In addition numerous classical concerts such as those performed by the ba roque orchestra and vocal ensemble La Cetra are being staged in churches throughout the city. There are several jazz clubs in Basel, such as “the bird’s eye jazz club” and there is also a series of festivals featuring all styles, from Dixie to Swing and avantgarde jazz. In the areas of Rock, Hip-Hop, Techno and other contemporary musical trends, several pubs in Ba sel and in the local area provide a varied and lively programme. The  cultural festival “Floss”, which is performed on a raft in the Rhine in the summer, represents a special feature. When world-famous stars such as Rod Stewart, Seal or Alicia Keys come to Basel, they are probably attending the BALOISE SESSION. Every autumn, top in ternational stars perform at the popular Swiss boutique music fes tival, leaving the audience with memorable experiences. Further more, at the Musical Theatre Basel, one of the most modern stages in Europe, major musical events regularly take place.
+
+- **Cinema -** In Basel film fans also get their money’s worth. The fact that films in the cinema are shown in the original but with subtitles is considered a special feature of Switzerland. Films for children and young peo ple can, however, also be seen in a dubbed version. The choice ranges from the great multiplex cinema to the small city cinema.
+
+- **Architecture -** The cityscape of Basel with its numerous contrasts and sights also belongs to the culture of the city. On the one hand, Basel has very well preserved old city parts with buildings from the 13th and 14th centuries. Above all the cathedral hill, the suburb of St. Alban and the streets between the market square and Petersplatz deserve a mention. Besides that Basel offers first-class modern architecture in a density offered by hardly any other European city. Among Ba sel’s architectural highlights are the 105-metre-high Messe tower by architects Morger Degelo Marques and the St. Jakob-Park foot ball stadium by Herzog & de Meuron. The new Novartis Campus next to the French border was realised with the participation of re nowned architects. The 205 meter high Roche office tower in Klein basel is the tallest office building in Switzerland. The first Roche Tower, already completed in 2015, is 178 metres high. It is hardly astonishing, therefore, that the Swiss Museum of Architecture is also located in Basel.
+
+## 5. Carnival
+
+For three days once a year there’s a very special atmosphere in Basel: it’s the three days of the Basel Fasnacht (Carnival), always in the week following Ash Wednesday. 
+
+- **“Morgestraich” -** The prelude to the “drey scheenschte Dääg” (“the three best days”) comes in the form of the so-called “Morgestraich” at 4 in the morning on the Monday. Then all the city centre lights go out and Queen Fasnacht picks up the torch in the city till Thursday. A traditional and archaic-seeming tapestry of sound from innumerable piccolos and drums pervades the town. With their wild and brightly coloured costumes the merry Fasnacht crowd roams through the narrow lanes of the old town until dusk begins to fall. The only sources of light are powerful hand-painted lanterns.
+
+- **“Cortège” -** On the Monday afternoon (and on Wednesday too) there is the great procession, the “Cortège”, when hundreds of cliques, “Guggemusiken” and decorated floats pass through the streets of outer and inner Basel. In Basel “Guggemusiken” mean wind and percussion groups, which can be described as a mix between Big Bands and strange noise machines.
+
+- **Fasnacht Tuesday -** Tuesday traditionally belongs to the children, who make their way through the town and suburbs in small groups (“Schissdrägzygli”). In the evening on Münsterplatz the over two hundred lanterns that had made their grand entrance at the Morgestraich can be admired in peace. At the same time the Guggemusiken take over the inner city acoustically with their concerts.
+
+- **“Schnitzelbängg” -** There is intense activity in the pubs over these three days. In socalled “Schnitzelbängg” – humorous, and sometimes sarcastic mocking verses – in which the political and social events of the past months are scoffed at and commented on.
+
+- **Origin -** Etymologically the Basel Fasnacht can be traced back to the Lent fasting period, and the date is determined by the Christian feast days: The Basel Fasnacht always takes place six weeks before Easter, thus a week later than in the Catholic German-speaking area, and the afternoons of the Monday and Wednesday are declared official public holidays in Basel.
+
+## 6. Green areas
+
 The canton of Basel-Stadt is indeed a city canton, but it offers in and
 around the town a large number of green spaces, ranging from pocket parks in empty lots to the extensive city park on former graveyard
 grounds.
-18 19
-Sport
+
+- **Leisure gardens -** Those who don’t have a garden can rent a leisure garden. The canton rents out leisure gardens around the city.
+
+- **Recreation zones -** One can also find recreation at the “Birsköpfli” on the edge of the city, where the little river Birs flows into the Rhine. Or a walk along the Wiese, another tributary of the Rhine. In the surrounding woods there are numerous open hearths for evening barbecues. In the vicinity of the Spalentor in the city centre the University of Basel has a botanical garden with a Sukkulentenhaus (succulents greenhouse) and the Viktoriahaus dating from 1898. In the “Merian Gärten” in front of the city gates, visitors can enjoy an English landscape park, a medicinal plant garden and the rhododendron valley. The RegioGrüngürtel (regional green belt) around Basel is the main green artery for leisure and recreation. It is also the habitat of several thousand animal and plant types, including some very rare and threatened species. 
+
+- **Zoo and animal park -** Basel’s zoological garden – “dr Zolli”, as it is called here – is Switzerland’s oldest animal park. It was founded in 1874, and today the “Zolli” displays a blend of modern, animal-friendly facilities with magnificent old buildings in a green oasis in the immediate proximity of the train station. In the recreation area of the same name is the Lange Erlen animal park. This is smaller than the zoo and features primarily domestic animals.
+
+- **Ship and ferry -** Boat trips on the Rhine are also very popular. The Basel passenger boat company offers regular and special passenger trips throughout the year both near and beyond the city. And if you just wish to cross the Rhine to the other bank, then you should try one of the four ferries in Basel. These noiseless craft use the currents of the Rhine to reach the other bank without additional power. And besides, when one doesn’t quite believe something, then one says in Basel: “Verzell doch das em Fäärimaa!” – Just tell that to the ferryman!
+
+
+## 7. Sport
 Popular sport
  The possibilities for popular sport are virtually unlimited. More than
 200 sports clubs are active in Basel, the list of sports on offer is long
