@@ -9,13 +9,14 @@
 ### Prós
 
 1. Mais opções de apartamento
-2. Próximo ao trabalho (economia de CHF e 1 hora por dia) 
-3. 
+2. Próximo ao trabalho (economia de 200 CHF/mês e 1 hora por dia) 
+3. Mais opções de lazer
+4. Mas oportunidades de emprego
 
 ### Contras
 
 1. Não tem a comunidade de brasileiros pra ajudar na integração
-2. bbb
+2. Imposto mais alto
 3. ccc
 
 ### Imoveis
