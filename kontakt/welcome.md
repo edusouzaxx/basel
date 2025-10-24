@@ -27,7 +27,6 @@ The central institution for this contact is the Customer Centre of the Residenti
  
 - **Eating out -** Restaurants in Basel and its surroundings enjoy a good reputation. They are varied and offer something for every taste: the choice ranges from the cosy neighbourhood pub to the gourmet temple with stars and an award-winning chef. And as far as the type of cui sine is concerned, the Basel region knows no borders: you can choose between regional dishes and gastronomic delicacies from all over the world.
 
-
 - **Residential Registration Office -** The Residential Registration Office is also specifically the first con tact point for people who are moving to Basel and must deal with their residency status in the canton. It records the data concerning all Swiss and foreign inhabitants. This includes, for example, chang es in marital status, address changes, name changes, births and deaths. The Residential Registration Office gives advice to newcomers and issues certificates and confirmations. In addition information and forms from other cantonal departments can be obtained here. Pass ports and identity cards for Swiss citizens are issued by the pass port office. It also handles lost property and issues certifications and apostilles.
 
 - **Permits -** Personal advice is offered at the contact points in the Residential Registration Office, at the motor vehicle inspection department and at the building and traffic department. In some cases permits from other offices can also be applied for there. Keeping animals As a rule keeping pets does not require a permit in the canton of Ba sel-Stadt (exception: potentially dangerous dogs). However, when crossing the border, vaccination rules and   /or special import regula tions apply to many animals. Various regulations concerning keep ing them must also be complied with. And all animals must be ac commodated and cared for in a manner appropriate to their species. In addition dogs must be registered or re-registered for taxation with the veterinary office and also with AMICUS, and must carry a micro chip.
@@ -36,143 +35,35 @@ The central institution for this contact is the Customer Centre of the Residenti
 
 - **Radio and TV -** Radio and TV are subject to licence fees in Switzerland. It does not matter whether radio, television, computer, tablet or mobile phone are present or in use. Serafe has been tasked by the Confederation with collecting the licensing fees. The licensing fees are paid per household, not per device. Families, flat-sharing communities or couples who live in the same household pay the fees only once
 
-
 ## 2. Children, Youth and Families
 
-Child care
-In terms of childcare by non-family members, parents have the
-choice between a number of options, including daycare centres
-or day families. Facilities are available in all residential neighbourhoods.
-Leisure
-In Basel, families, youth and children are also well catered for when
-it comes to leisure activities, with numerous local recreation areas
-offering attractive locations to linger. In summer, open-air swimming
-pools are very popular, while in winter, two ice rinks invite the population to turn a few rounds. Libraries, museums, children’s and youth
-theatres, local meeting points and children’s and youth centres offer
-a wide range of leisure activities. On top of this, Basel boasts numerous public playgrounds, parks and sports facilities.
-Advice/counselling
-A network of private and public institutions supports and helps families, parents, adolescents and children tackle problems or emergencies. Among them are the children and youth service, the centre for early intervention, parent counselling, the family, couple and
-educational counselling and the youth councelling.
-Children, Youth and
-Families
-The future plays a central role in Basel, where child- and familyfriendly policies are a matter of course in all sectors.
-Since 2013, Basel has held the Unicef “Child Friendly Community”
-award. With respect to daycare for pre-school children, Basel also
-plays a leading role based on the citizens’ right to daycare which
-is encoded in the constitution.
-6 7
-Education
-The canton of Basel-Stadt has a modern, high-quality school system that meets the diverse needs of the children and young people
-living here. In Switzerland education and training are in principle the
-responsibility of the cantons.
-8
-9
-Education Education
-numerous associations and student bodies. The official representa
--
-tion of the students at the University of Basel is the “scuba”. This
-works not only for student participation, but also promotes student
-initiatives and organises its own cultural offerings.
-University of Applied Sciences and
-Arts Northwestern Switzerland (FHNW)
-In addition to the university, in the field of university-level education
-the FHNW provides a high-quality range of educational programmes.
-The FHNW is a regionally anchored educational institution with a
-international reputation. It includes ten schools, which cover the
-subjects of Computer Science, Engineering and Environment, Ar
--
-chitecture and Civil Engineering, Business, Life Sciences, Art and
-Design, Social Work, Teacher Education, Psychology and Music in
-teaching and applied research. The FHNW has almost 14,000 stu
--
-dents. 1,000 of them come from abroad. Female students make up
-just above 50 percent. Fees are 700 francs per semester for Swiss
-students and 1,000 Swiss francs for students from the EU/EFTA.
-Private schools
-Those who don’t want to make use of the free public schools can
-make use of the services of a private educational institution in the
-Basel region. These include the English-, French- or Italian-speaking
-international schools in Basel and the surrounding area. At individu
--
-al private schools a leaving certificate recognised throughout Swit
--
-zerland can also be provided.
-Further education
-Basel also offers a wide choice in the area of further education: The
-FHNW offers a diversified range of further education possibilities in
-all its subject areas. Under the “Advanced Studies” the University of
-Basel for example organises academic further education courses
-to be completed while working. Federal qualifications in the field of
-higher vocational training can be obtained from public vocational
-colleges as well as private schools. The adult education centre of
-both Basel cantons offers numerous events in general further edu
--
-cation, language courses and post-literacy courses for adults. And
-for all people who have reached the age of 58, the “SeniorenUni”
-organises events in various fields of knowledge of the University of
-Basel. Adults who had no opportunity in their youth to attend a sec
--
-ondary school can obtain a canton school-leaving certificate in the
-matriculation courses for working people (Maturitätskurse für Erwachsene [MfB]), which enables access to the University of Basel. In addition, adult education facilities offer vocational qualification courses for adults.
+The future plays a central role in Basel, where child- and familyfriendly policies are a matter of course in all sectors. Since 2013, Basel has held the Unicef “Child Friendly Community” award. With respect to daycare for pre-school children, Basel also plays a leading role based on the citizens’ right to daycare which is encoded in the constitution.
 
-Early promotion of German
-Children who do not speak any or hardly any German attend a
-playgroup with German language support or a German-speaking
-nursery school for at least three half days per week in the year be
--
-fore they start kindergarten to learn German in a playful way. This
-early promotion of German has been mandatory in Basel since 2013.
-Kindergarten, primary and secondary school
-Compulsory schooling comprises eleven years and is divided into
-the kindergarten, primary and secondary levels. Children attend
-kindergarten for two years, usually between the ages of five and
-seven. After that they attend primary school for six years. Here chil
--
-dren learn French starting in the third year and English starting in
-the fifth year. After primary school all pupils attend the three-year
-secondary school. Depending upon their performance in school the
-children are divided into three levels: A (general requirements), E
-(expanded requirements) and P (high requirements). Kindergarten
-and primary school offer day-care structures beyond the instruction:
-in exchange for a fee paid by the parents, children are looked after
-in day-care facilities at schools or for midday meals. During the
-school holidays there are supervision at school, day holidays, and
-sports camps for children. In secondary schools, the children also
-have the option of a lunchtime meal. In the afternoons, the children
-can attend supervised learning centres or recreational courses. In
-all schools core times are applied.
-Apprenticeships, vocational and technical
-school certificates, academic secondary
-school
-Depending upon their performance in school and personal abilities
-and interests, after the eleven years of compulsory schooling young
-people have several possibilities. One of them is the two- to four
--
-year apprenticeship. A vocational school certificate during or after
-the apprenticeship opens the way to studies at a college of higher
-education. Further possibilities are the four-year Fachmaturitätsschule (vocational matriculation school) and the four-year secondary school. A diploma from a matriculation school entitles the holder
-to study at a college of advanced education, and the certificate
-from a secondary school leads to a university.
-University of Basel
-The University of Basel is the oldest university in Switzerland. It was
-founded in 1460 and today it is a modern university located in the
-city centre with an attractive range of research, teaching and ser
--
-vices. As a traditional comprehensive university it covers almost all
-fields of study and includes seven faculties. By European standards
-the University of Basel is a rather small university. It counts 13,000
-students, nearly 3000 of them are doctoral candidates. The propor
--
-tion of female students amounts around 55 per cent and a fifth of the
-students is from abroad. The University of Basel is held by the can
--
-tons of Basel-Stadt and Basel-Landschaft. In Switzerland all univer
--
-sity students pay student fees; in Basel these amount to 850 francs
-per semester. The University of Basel offers a rich and diversified
-student life. In addition to the range of university sports, there are
-10 11
-Culture
+- **Child care -** In terms of childcare by non-family members, parents have the choice between a number of options, including daycare centres or day families. Facilities are available in all residential neighbourhoods.
+
+- **Leisure -** In Basel, families, youth and children are also well catered for when it comes to leisure activities, with numerous local recreation areas offering attractive locations to linger. In summer, open-air swimming pools are very popular, while in winter, two ice rinks invite the population to turn a few rounds. Libraries, museums, children’s and youth theatres, local meeting points and children’s and youth centres offer a wide range of leisure activities. On top of this, Basel boasts numerous public playgrounds, parks and sports facilities.
+
+- **Advice/counselling -** A network of private and public institutions supports and helps families, parents, adolescents and children tackle problems or emergencies. Among them are the children and youth service, the centre for early intervention, parent counselling, the family, couple and educational counselling and the youth councelling.
+
+## 3. Education
+
+The canton of Basel-Stadt has a modern, high-quality school system that meets the diverse needs of the children and young people living here. In Switzerland education and training are in principle the responsibility of the cantons.
+
+- **Early promotion of German -** Children who do not speak any or hardly any German attend a playgroup with German language support or a German-speaking nursery school for at least three half days per week in the year be fore they start kindergarten to learn German in a playful way. This early promotion of German has been mandatory in Basel since 2013
+
+- **Kindergarten, primary and secondary school -** Compulsory schooling comprises eleven years and is divided into the kindergarten, primary and secondary levels. Children attend kindergarten for two years, usually between the ages of five and seven. After that they attend primary school for six years. Here chil dren learn French starting in the third year and English starting in the fifth year. After primary school all pupils attend the three-year secondary school. Depending upon their performance in school the children are divided into three levels: A (general requirements), E (expanded requirements) and P (high requirements). Kindergarten and primary school offer day-care structures beyond the instruction: in exchange for a fee paid by the parents, children are looked after in day-care facilities at schools or for midday meals. During the school holidays there are supervision at school, day holidays, and sports camps for children. In secondary schools, the children also have the option of a lunchtime meal. In the afternoons, the children can attend supervised learning centres or recreational courses. In all schools core times are applied.
+
+- **Apprenticeships, vocational and technical school certificates, academic secondary school -** Depending upon their performance in school and personal abilities and interests, after the eleven years of compulsory schooling young people have several possibilities. One of them is the two- to four year apprenticeship. A vocational school certificate during or after the apprenticeship opens the way to studies at a college of higher education. Further possibilities are the four-year Fachmaturitätsschule (vocational matriculation school) and the four-year secondary school. A diploma from a matriculation school entitles the holder to study at a college of advanced education, and the certificate from a secondary school leads to a university.
+
+- **University of Basel -** The University of Basel is the oldest university in Switzerland. It was founded in 1460 and today it is a modern university located in the city centre with an attractive range of research, teaching and ser vices. As a traditional comprehensive university it covers almost all fields of study and includes seven faculties. By European standards the University of Basel is a rather small university. It counts 13,000 students, nearly 3000 of them are doctoral candidates. The propor tion of female students amounts around 55 per cent and a fifth of the students is from abroad. The University of Basel is held by the can tons of Basel-Stadt and Basel-Landschaft. In Switzerland all univer sity students pay student fees; in Basel these amount to 850 francs per semester. The University of Basel offers a rich and diversified student life. In addition to the range of university sports, there are numerous associations and student bodies. The official representa tion of the students at the University of Basel is the “scuba”. This works not only for student participation, but also promotes student initiatives and organises its own cultural offerings.
+
+- **University of Applied Sciences and Arts Northwestern Switzerland (FHNW) -** In addition to the university, in the field of university-level education the FHNW provides a high-quality range of educational programmes. The FHNW is a regionally anchored educational institution with a international reputation. It includes ten schools, which cover the subjects of Computer Science, Engineering and Environment, Ar chitecture and Civil Engineering, Business, Life Sciences, Art and Design, Social Work, Teacher Education, Psychology and Music in teaching and applied research. The FHNW has almost 14,000 stu dents. 1,000 of them come from abroad. Female students make up just above 50 percent. Fees are 700 francs per semester for Swiss students and 1,000 Swiss francs for students from the EU/EFTA.
+
+- **Private schools -** Those who don’t want to make use of the free public schools can make use of the services of a private educational institution in the Basel region. These include the English-, French- or Italian-speaking international schools in Basel and the surrounding area. At individu al private schools a leaving certificate recognised throughout Swit zerland can also be provided
+
+- **Further education -** Basel also offers a wide choice in the area of further education: The FHNW offers a diversified range of further education possibilities in all its subject areas. Under the “Advanced Studies” the University of Basel for example organises academic further education courses to be completed while working. Federal qualifications in the field of higher vocational training can be obtained from public vocational colleges as well as private schools. The adult education centre of both Basel cantons offers numerous events in general further education, language courses and post-literacy courses for adults. And for all people who have reached the age of 58, the “SeniorenUni” organises events in various fields of knowledge of the University of Basel. Adults who had no opportunity in their youth to attend a sec ondary school can obtain a canton school-leaving certificate in the matriculation courses for working people (Maturitätskurse für Erwachsene [MfB]), which enables access to the University of Basel. In addition, adult education facilities offer vocational qualification courses for adults. 
+
+## Culture
 Where culture is concerned, Basel has more to offer than cities of
 comparable size. This has to do with the city’s history, its location
 and the cosmopolitanism of the city and its inhabitants.
