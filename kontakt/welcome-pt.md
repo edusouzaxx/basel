@@ -1,3 +1,7 @@
+# Bem-vindo a Basel-Stadt
+
+Quem se muda para um novo lugar precisa primeiro se reorientar, porque nada é como antes. Isso começa com as considerações mais banais e cotidianas: para onde vai o lixo? Mas logo surgem perguntas um pouco mais difíceis. Onde devo registrar meu carro? Onde meu filho estudará? E o que farei no meu tempo livre quando mal conhecer alguém na minha nova casa?
+
 ## 1. Vida cotidiana
 
 O cantão de Basel-Stadt dispõe de uma administração moderna que facilita o contato com os moradores.

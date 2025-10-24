@@ -1,3 +1,7 @@
+# Welcome to Basel-Stadt
+
+People who move to a new place must first reorient themselves, because nothing is the way it used to be. This begins with the mostmundane, everyday considerations: where does the rubbish go?But soon somewhat more difficult questions emerge. Where do Ihave to register my car? Where will my child go to school? And whatam I going to do in my free time when I hardly know anyone in mynew home? 
+
 ## 1. Everyday life
 
 The canton of Basel-Stadt has a modern administration at its disposal which fosters uncomplicated dealings with the inhabitants.
