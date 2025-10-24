@@ -1,19 +1,3 @@
-
-1. Everyday life
-2. Children, youth and families
-3. Education
-4. Culture
-5. Carnival
-6. Green areas
-7. Sport
-8. Health
-9.  Integration
-10. Economy and employment
-11. Fairs and markets
-12. Mobility
-13. Politics
-
-
 ## 1. Everyday life
 
 The canton of Basel-Stadt has a modern administration at its disposal which fosters uncomplicated dealings with the inhabitants.
