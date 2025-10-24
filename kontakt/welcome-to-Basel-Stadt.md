@@ -407,41 +407,6 @@ Ele combina tradição, música e crítica social — um verdadeiro símbolo da 
 
 ---
 
-### 🇬🇧 Basel Carnival
-
-Once a year, Basel goes into a joyful state of emergency for three days — the famous **“drey scheenschte Dääg”** (“the three most beautiful days”).
-The **Basel Carnival** always takes place **one week after Ash Wednesday**, six weeks before Easter.
-Monday and Wednesday afternoons are **official public holidays** in the canton.
-
-### 🎭 Morgestraich
-
-At **4:00 a.m. on Monday morning**, all city lights go out, and the Carnival officially begins.
-The streets fill with **piccolos, drums, and hand-painted lanterns**, creating a mysterious atmosphere.
-Costumed participants march through the narrow lanes of the old town until dawn.
-
-### 🎉 Cortège
-
-On **Monday and Wednesday afternoons**, the grand parade, known as the **Cortège**, takes place.
-Hundreds of **cliques**, **Guggemusik** (brass and percussion ensembles), and **decorated floats** follow a set route through the streets of Greater and Lesser Basel.
-
-### 👧 Children’s Carnival (Tuesday)
-
-**Tuesday** is the **children’s day**.
-They parade through the city in small groups called **“Schissdrägzygli.”**
-In the evening, the **lanterns from Morgestraich** are displayed once again at **Münsterplatz**, while **Guggemusik concerts** fill the air.
-
-### 🗣️ Schnitzelbängg
-
-Throughout the evenings, **bars and pubs** are lively.
-**Schnitzelbängg performers** recite **humorous, satirical rhyming verses**, commenting on current political and social events.
-
-### 📜 Origins
-
-The Basel Carnival has **medieval roots** and has been recognized as an **Intangible Cultural Heritage of Humanity** by **UNESCO** since 2017.
-It represents a mix of **tradition, music, and social commentary**, deeply embedded in Basel’s cultural identity.
-
----
-
 ### 🗣️ Vocabulário / Vocabulary
 
 | Português         | English                      | Deutsch           |
