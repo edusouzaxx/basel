@@ -7,7 +7,7 @@
 [Basel - All Information](https://www.bs.ch/themen)<br>
 [Basel - Information in 20 Languages](https://www.hallo-baselstadt.ch/)<br>
 [Basel - Imigration Advice 17 Languages](https://www.ggg-migration.ch/beratung/)<br>
-[Basel - Useful addresses everyday life and living together](https://www.bs.ch/en/<br>verwaltung/useful-addresses/useful-addresses-everyday-life-and-living-together)
+[Basel - Useful addresses everyday life and living together](https://www.bs.ch/en/verwaltung/useful-addresses/useful-addresses-everyday-life-and-living-together)
 
 2. **Basel - Healthcare**
 
