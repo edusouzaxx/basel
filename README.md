@@ -3,7 +3,7 @@
 1. **Basel - Welcome to**
    
 [Basel - This is Basel](https://www.basel.com/en)<br>
-[Basel - New in Basel?](https://www.bs.ch/en/topics/personliches-und-wohnen/<br>zuzug-und-aufenthalt/zuzug-den-kanton-basel-stadt/new-basel#register)
+[Basel - New in Basel?](https://www.bs.ch/en/topics/personliches-und-wohnen/<br>zuzug-und-aufenthalt/zuzug-den-kanton-basel-stadt/new-basel#register)<br>
 [Basel - All Information](https://www.bs.ch/themen)<br>
 [Basel - Information in 20 Languages](https://www.hallo-baselstadt.ch/)<br>
 [Basel - Imigration Advice 17 Languages](https://www.ggg-migration.ch/beratung/)<br>
