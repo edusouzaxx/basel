@@ -42,6 +42,7 @@
 
 [Basel - Waste disposal in Basel-Stadt](https://www.bs.ch/themen/umwelt-und-bauen/abfall-und-sauberkeit/abfallabfuhr)<br>
 [Basel - Waste schedule for your area](https://www.bs.ch/themen/umwelt-und-bauen/abfall-und-sauberkeit/abfallabfuhr#abfuhrplaene)<br>
+[Basel - Waste abc](https://www.bs.ch/themen/umwelt-und-bauen/abfall-und-sauberkeit/abfall-abc) <br>
 
 7. **Basel - Living in Basel-Stadt**
 
