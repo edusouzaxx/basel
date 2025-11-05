@@ -74,3 +74,7 @@
 13.  **Basel - Financial**
   
 [Basel - Tax Calculator](https://www.bs.ch/themen/arbeit-und-steuern/steuererklaerung/steuerrechner)<br>
+
+14. **Basel - Shopping**
+
+[Basel - IKEA](https://www.ikea.com/ch/de/) 
