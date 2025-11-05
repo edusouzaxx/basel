@@ -82,8 +82,9 @@
 
 15. **Basel - Religion**
 
-[Basel - Sunday Masses](https://weekdaymasses.org.uk/pt/day/U/area/basel) 
+[Basel - Sunday Catholics Masses](https://weekdaymasses.org.uk/pt/day/U/area/basel) <br>
 
+[Basel - Mission Católica Lengua Espanhola](https://www.misiondebasilea.ch/) <br>
 
 
  
