@@ -77,4 +77,4 @@
 
 14. **Basel - Shopping**
 
-[Basel - IKEA](https://www.ikea.com/ch/de/) 
+[Basel - IKEA](https://www.ikea.com/ch/en/) 
