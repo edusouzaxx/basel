@@ -77,4 +77,13 @@
 
 14. **Basel - Shopping**
 
-[Basel - IKEA](https://www.ikea.com/ch/en/) 
+[Basel - IKEA](https://www.ikea.com/ch/en/)<br>
+
+
+15. **Basel - Religion**
+
+[Basel - Sunday Masses](https://weekdaymasses.org.uk/pt/day/U/area/basel) 
+
+
+
+ 
