@@ -89,5 +89,7 @@
 
 [Basel - Mission Católica Lengua Espanhola](https://www.misiondebasilea.ch/) <br>
 
+16. **Switzerland - News**
 
- 
+[SWI swissinfo.ch](https://www.swissinfo.ch/por/)<br>
+
