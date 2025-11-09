@@ -37,6 +37,9 @@
 [Basel - U-Abo for the nearby region](https://www.u-abo.ch/das-u-abo/)<br>
 [Basel - Convert your driving licence to Swiss licence](https://www.bs.ch/themen/mobilitaet/fuehrerausweise/umtausch-schweizer-fuehrerausweis)<br>
 [Basel - Resident parking permit](https://www.bs.ch/themen/mobilitaet/fahren-und-parkieren/parkkarten/anwohnerparkkarte)<br>
+[Mobility - Car sharing  ](https://mobility.ch)<br>
+[Carify - Car subscription](https://www.carify.com/en)<br>
+
 
 6. **Basel - Waste disposal and recycling**
 
