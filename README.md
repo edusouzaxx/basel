@@ -93,3 +93,6 @@
 
 [SWI swissinfo.ch](https://www.swissinfo.ch/por/)<br>
 
+17. **Switzerland - Tourism**
+
+[Myswitzerland.com](https://www.myswitzerland.com/)<br>
