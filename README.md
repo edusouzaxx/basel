@@ -2,16 +2,14 @@
 
 0. **Basel - Family**
 
-Our address:   
+**Our address:**   
 
-Hochstrasse 16, Gundeli, 4053 Basel 
-City Pop Jakob - Apartment 0.01
-76 740 1503
+Hochstrasse 16, Gundeli, 4053 Basel <br>
+City Pop Jakob - Apartment 0.01 <br>
+Dad's phone: 76 740 1503 <br>
 [Google Maps Link](https://maps.app.goo.gl/Abniqwd6yPQsyQcQ6)
 
-Other addresses:
-
-[Basel - Google Maps](https://maps.app.goo.gl/P7xsnES2ABYPBjpYA)
+**Other addresses:**  [Basel - Google Maps](https://maps.app.goo.gl/P7xsnES2ABYPBjpYA)
 
 1. **Basel - Welcome to**
    
