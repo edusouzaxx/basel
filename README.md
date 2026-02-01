@@ -74,6 +74,8 @@ Dad's phone: 76 740 1503 <br>
 [Basel - Sport for all](https://www.bs.ch/ed/jfs/sport/sport-fuer-alle)<br>
 [Basel - Leisure activities](https://www.hallo-baselstadt.ch/en/canton-basel-stadt/leisure)<br>
 [Basel - Events calendar](https://www.bs.ch/veranstaltungen)<br>
+[Basel - Kulturstiftung Basel H. Geiger](https://kbhg.ch/)<br>
+
 
 10. **Basel - Residence permit**
 
