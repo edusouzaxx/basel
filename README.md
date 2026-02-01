@@ -9,7 +9,8 @@ City Pop Jakob - Apartment 0.01 <br>
 Dad's phone: 76 740 1503 <br>
 [Google Maps Link](https://maps.app.goo.gl/Abniqwd6yPQsyQcQ6)
 
-**Other addresses:**  [Basel - Google Maps](https://maps.app.goo.gl/P7xsnES2ABYPBjpYA)
+**Other addresses:**  <br>
+[Basel - Google Maps](https://maps.app.goo.gl/P7xsnES2ABYPBjpYA)
 
 1. **Basel - Welcome to**
    
