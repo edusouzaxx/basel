@@ -18,7 +18,7 @@ Dad's phone: 76 740 1503 <br>
 [Basel - New in Basel?](https://www.bs.ch/en/topics/personliches-und-wohnen/zuzug-und-aufenthalt/zuzug-den-kanton-basel-stadt/new-basel#register)<br>
 [Basel - All Information](https://www.bs.ch/themen)<br>
 [Basel - Information in 20 Languages](https://www.hallo-baselstadt.ch/)<br>
-[Basel - Imigration Advice 17 Languages](https://www.ggg-migration.ch/beratung/)<br>
+[Basel - GGG Imigration Advice 17 Languages](https://www.ggg-migration.ch/beratung/)<br>
 [Basel - Useful addresses everyday life and living together](https://www.bs.ch/en/verwaltung/useful-addresses/useful-addresses-everyday-life-and-living-together)
 
 2. **Basel - Healthcare**
