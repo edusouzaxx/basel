@@ -76,8 +76,7 @@ Dad's phone: 76 740 1503 <br>
 [Basel - Leisure activities](https://www.hallo-baselstadt.ch/en/canton-basel-stadt/leisure)<br>
 [Basel - Events calendar](https://www.bs.ch/veranstaltungen)<br>
 [Basel - Kulturstiftung Basel H. Geiger](https://kbhg.ch/)<br>
-
-[Switzerland - Town and Country] (https://www.townandcountrymag.com/leisure/travel-guide/a70225975/best-switzerland-ski-resorts-luxury-travel-guide/) <br>
+[Switzerland - Town and Country](https://www.townandcountrymag.com/leisure/travel-guide/a70225975/best-switzerland-ski-resorts-luxury-travel-guide/) <br>
 
 10. **Basel - Residence permit**
 
